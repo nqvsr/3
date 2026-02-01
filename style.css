@@ -1,0 +1,163 @@
+* {
+    margin: 0;
+    padding: 0;
+    box-sizing: border-box;
+}
+body {
+    font-family: serif;
+    background: linear-gradient(135deg, #0f0c29, #302b63, #24243e);
+    background-attachment: fixed;
+    color: #e8e8e8;
+    line-height: 1.9;
+    padding: 20px;
+}
+.container {
+    max-width: 900px;
+    margin: 0 auto;
+    background: rgba(15, 15, 30, 0.95);
+    padding: 60px;
+    border-radius: 20px;
+    box-shadow: 0 30px 90px rgba(0, 0, 0, 0.7);
+}
+.nav {
+    display: flex;
+    justify-content: space-between;
+    margin-bottom: 50px;
+    padding-bottom: 20px;
+    border-bottom: 2px solid rgba(255, 215, 0, 0.3);
+}
+.nav a {
+    color: #ffd700;
+    text-decoration: none;
+    font-family: serif;
+    font-size: 1.1em;
+    transition: all 0.3s;
+    padding: 10px 20px;
+    border-radius: 5px;
+}
+.nav a:hover {
+    background: rgba(255, 215, 0, 0.2);
+    transform: scale(1.05);
+}
+h1 {
+    font-family: serif;
+    font-size: 3em;
+    color: #ffd700;
+    text-align: center;
+    margin-bottom: 20px;
+    letter-spacing: 3px;
+}
+.chapter-title {
+    font-size: 2em;
+    color: #ffed4e;
+    text-align: center;
+    font-style: italic;
+    margin-bottom: 50px;
+}
+h3 {
+    font-family: serif;
+    font-size: 1.8em;
+    color: #ffed4e;
+    margin: 50px 0 25px;
+    font-style: italic;
+}
+p {
+    margin-bottom: 25px;
+    font-size: 1.15em;
+    text-align: justify;
+    line-height: 2;
+}
+.emphasis {
+    font-style: italic;
+    color: #ffd700;
+    font-weight: 600;
+}
+.dialogue {
+    font-style: italic;
+    color: #b0b0b0;
+    margin: 15px 0;
+    padding: 5px 10px;
+    background: rgba(255, 215, 0, 0.05);
+    border-radius: 5px;
+    position: relative;
+}
+.dialogue::before {
+    content: '"';
+    color: #ffd700;
+    font-size: 1.2em;
+    position: absolute;
+    left: -5px;
+    top: -5px;
+}
+.dialogue::after {
+    content: '"';
+    color: #ffd700;
+    font-size: 1.2em;
+    position: absolute;
+    right: -5px;
+    bottom: -5px;
+}
+.internal-thought {
+    font-style: italic;
+    color: #9999ff;
+    opacity: 0.95;
+}
+.dramatic {
+    font-family: serif;
+    font-weight: 700;
+    font-size: 1.4em;
+    color: #ffed4e;
+    text-align: center;
+    margin: 50px 0;
+    letter-spacing: 5px;
+    text-transform: uppercase;
+}
+.intimate-scene {
+    background: linear-gradient(135deg, rgba(255, 215, 0, 0.1), rgba(255, 215, 0, 0.05));
+    padding: 40px;
+    border-left: 6px solid #ffd700;
+    margin: 50px 0;
+    border-radius: 10px;
+}
+.the-end {
+    font-family: serif;
+    font-size: 2.5em;
+    color: #ffd700;
+    text-align: center;
+    margin: 80px 0;
+    letter-spacing: 8px;
+}
+@media (max-width: 768px) {
+    .container {
+        padding: 20px;
+    }
+    h1 {
+        font-size: 2.5em;
+    }
+    .chapter-title {
+        font-size: 1.8em;
+    }
+    h3 {
+        font-size: 1.6em;
+    }
+    p {
+        font-size: 1.2em;
+        line-height: 2.1;
+    }
+    .dialogue {
+        margin: 10px 0;
+        padding: 5px 8px;
+    }
+    .nav {
+        flex-direction: column;
+        gap: 10px;
+    }
+    .intimate-scene {
+        padding: 20px;
+        margin: 30px 0;
+    }
+    .the-end {
+        font-size: 2em;
+        margin: 50px 0;
+    }
+}
