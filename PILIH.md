@@ -6,63 +6,63 @@ Selamat datang! Ini adalah novel interaktif di mana **KAMU** yang menentukan jal
 
 ## 🎭 PILIH TEMA CERITAMU:
 
-### TEMA 1: 🗡️ ASSASSIN & ROYALTY (Dark Romance/Action)
-**"Shadow of the Dragon Throne"**
+### TEMA 1: ☠️ VILLAIN PROTAGONIST
+**"The Demon Lord's Second Chance"**
 
-Kamu adalah Raven, assassin paling mematikan di tiga kerajaan. Kontrak terakhirmu: bunuh Pangeran Kael sebelum dia naik takhta. Tapi saat kamu bersembunyi di taman istana, dia mendeteksi kehadiranmu. Dia tidak memanggil penjaga—dia malah mengajakmu bicara. Ada konspirasi besar, dan kamu harus memutuskan: selesaikan kontrak, atau cari tahu kebenaran?
+Lo adalah Demon Lord yang akhirnya dikalahkan hero setelah 300 tahun berkuasa. Tapi instead of dying, lo respawn 10 tahun ke masa lalu—sebelum lo jadi jahat. Sekarang lo punya pilihan: jadi villain lagi tapi lebih smart, atau ubah timeline dan jadi anti-hero? Lo masih punya semua ilmu dark magic, tapi hero yang dulu ngalahin lo sekarang masih bocah. What do you do?
 
-**Genre:** Dark Fantasy, Romance, Political Intrigue, Action
-**Rating:** Mature (violence, romance, morally grey characters)
-
----
-
-### TEMA 2: 🌟 URBAN FANTASY ROMANCE
-**"The Coffee Shop Mage"**
-
-Kamu adalah pemilik kafe di Jakarta yang ternyata punya kemampuan sihir. Hidupmu normal sampai suatu hari seorang pria tampan (yang ternyata demon hunter) masuk ke kafemu, dikejar oleh makhluk supernatural. Sekarang kamu terseret ke dunia gelap yang selama ini kamu hindari. Plus, demon hunter ini... annoyingly attractive.
-
-**Genre:** Urban Fantasy, Romance, Comedy, Supernatural
-**Rating:** Teen+ (fantasy violence, romance, humor)
+**Genre:** Dark Fantasy, Isekai, Power Fantasy, Morally Grey
+**Rating:** Mature (violence, dark magic, world domination themes)
 
 ---
 
-### TEMA 3: 🚀 SCI-FI SPACE ADVENTURE
-**"The Last Starship"**
+### TEMA 2: 🔫 MODERN MAFIA LORD
+**"Jakarta Underworld"**
 
-Tahun 2247. Kamu adalah kapten kapal luar angkasa bajakan terakhir di galaksi. Saat menjarah kapal mewah, kamu menemukan seorang tahanan—seorang pangeran alien yang dicari oleh Federasi Galaksi dengan bounty 10 juta credits. Tapi dia punya informasi tentang ancaman yang bisa menghancurkan seluruh galaksi. Serahkan dia untuk uang, atau percaya padanya?
+Lo bangun dan ternyata jadi bos muda salah satu sindikat terbesar di Jakarta. Bokap lo (mafia lord legendary) baru aja mati, dan sekarang lima keluarga crime besar lagi perang buat ngerebutin territory. Lo harus pilih: aliansi sama siapa, betray siapa, dan gimana caranya naik ke puncak. Plus ada polisi korup, politisi busuk, dan rival yang pengen ngambil nyawa lo.
 
-**Genre:** Space Opera, Sci-Fi, Romance, Adventure
-**Rating:** Teen+ (sci-fi violence, alien politics, romance)
-
----
-
-### TEMA 4: 🏰 HISTORICAL FANTASY
-**"The Emperor's Forbidden Scholar"**
-
-Dinasti Ming, China. Kamu adalah scholar wanita yang menyamar sebagai pria untuk masuk akademi kekaisaran (ala Mulan tapi lebih dark). Kaisar muda yang baru naik takhta ternyata mengetahui rahasiamu—tapi instead of execute you, dia merekrutmu sebagai penasihat rahasianya. Ada perebutan kekuasaan, pemberontakan, dan perasaan terlarang yang berkembang di antara kalian.
-
-**Genre:** Historical Fantasy, Political Intrigue, Forbidden Romance
-**Rating:** Mature (political violence, forbidden romance, period drama)
+**Genre:** Crime Thriller, Modern Action, Strategy
+**Rating:** Mature (graphic violence, crime, mature themes)
 
 ---
 
-### TEMA 5: 🧛 SUPERNATURAL ROMANCE (DARK)
-**"Bound by Blood"**
+### TEMA 3: 🤖 MECHA PILOT WAR
+**"Steel Apocalypse"**
 
-Kamu bangun di mansion gothic tanpa ingatan bagaimana kamu sampai di sana. Yang kamu tahu: ada tiga vampir tampan yang mengklaimmu sebagai "bride" mereka karena darahmu special. Tapi kamu bukan damsel in distress—kamu ternyata vampire hunter yang kehilangan memori. Sekarang kamu harus memilih: pulihkan ingatanmu dan kembali membunuh mereka, atau... stay?
+2250. Bumi udah jadi wasteland gara-gara alien invasion. Lo adalah pilot mecha experimental terakhir yang punya system AI unik—dia bisa "evolve" tiap kali lo bunuh alien boss. Tapi ternyata AI lo mulai develop personality dan kadang ngelawan command lo. Sekarang lo harus survive di war zone, level up mecha lo, dan uncover truth kenapa alien nyerang Bumi.
 
-**Genre:** Paranormal Romance, Dark Fantasy, Mystery
-**Rating:** Mature (dark themes, blood, intense romance)
+**Genre:** Mecha, Sci-Fi, War, Post-Apocalyptic
+**Rating:** Teen+ (war violence, sci-fi action, survival themes)
 
 ---
 
-### TEMA 6: 🎮 ISEKAI GAME WORLD
-**"Trapped in the Otome Game"**
+### TEMA 4: 💀 NECROMANCER WARLORD
+**"Empire of the Dead"**
 
-Kamu terbangun di dalam otome game yang kamu mainkan semalam—tapi bukan sebagai heroine, melainkan sebagai villainess yang destined to die di semua route! Kamu punya pengetahuan tentang semua plot twist dan ending. Sekarang misi utamamu: survive dan avoid all the death flags. Tapi ternyata... the game characters are aware something's different about you.
+Lo adalah necromancer paling ditakutin di continent. Lo bisa raise army of undead, control souls, dan basically immortal. Semua kerajaan united buat ngehancurin lo, tapi lo punya ace: lo bisa revive legendary warriors dari history dan make them your generals. Conquer kingdoms, build undead empire, atau... ternyata ada alasan kenapa lo jadi necromancer, dan mungkin lo bisa break the curse.
 
-**Genre:** Isekai, Romance, Comedy, Fantasy
-**Rating:** Teen (lighthearted, comedy, multiple romance options)
+**Genre:** Dark Fantasy, Strategy, Army Building, Anti-Hero
+**Rating:** Mature (necromancy, undead, dark magic, war crimes)
+
+---
+
+### TEMA 5: 🗡️ OVERPOWERED ISEKAI (TWIST)
+**"Summoned as the Final Boss"**
+
+Lo ke-summon ke fantasy world, tapi bukan sebagai hero—lo jadi Final Boss Demon King yang di game original selalu kalah. Plot twist: lo inget semua strategy dari game, tau semua weakness hero party, dan lo respawn di early game. Lo bisa grinding, recruit monster army, build dungeon, set trap. Tapi yang summon lo ternyata punya hidden agenda. Bunuh heroes atau recruit them?
+
+**Genre:** Isekai, Game World, Strategy, Dark Comedy
+**Rating:** Teen+ (fantasy violence, strategy, morally grey)
+
+---
+
+### TEMA 6: ⚔️ MONSTER SLAYER GUILD
+**"Hunter's Blood"**
+
+Lo adalah rank-S monster hunter di guild paling elite. Mission terakhir lo: hunt elder dragon yang ngehancurin 3 kota. Tapi pas lo almost kill the dragon, dia ngomong ke lo—ternyata dia cuma defend territory dari humans yang invade. Sekarang lo tau truth: Monster Hunter Guild sebenernya farm monsters for profit, bukan protect humans. Betray guild atau stay loyal? Lo punya crew 4 hunters terbaik yang trust lo completely.
+
+**Genre:** Dark Fantasy, Action, Conspiracy, Monster Hunting
+**Rating:** Mature (graphic monster violence, conspiracy, betrayal)
 
 ---
 
