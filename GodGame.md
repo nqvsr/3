@@ -6027,7 +6027,20 @@ The Second World.
 
 Not a replacement for reality. Not an escape hatch for those unwilling to face it. But a refuge. An alternative. A *choice*.
 
-Those who could not return to physical life lived here. The one thousand eight hundred and thirty-nine whose bodies had long since been buried. The nine million who had chosen to stay when the door was finally opened. They built communities. Fell in love. Argued. Reconciled. Created art and music and meaning where none was supposed to survive.
+Those who could not return to physical life lived here.
+
+Those whose loved ones could not return chose to come as well, crossing over not out of necessity, but devotion. Together, they abandoned the first world and all it still demanded of them.
+
+The one thousand eight hundred and thirty-nine whose bodies had long since been lowered into the ground.
+The nine million who, when the door was finally opened, chose not to pass through it.
+
+They stayed.
+
+They built communities from absence.
+They fell in love where love was never meant to endure.
+They argued, fractured, and found their way back to one another.
+
+They created art and music and meaning in a place where meaning was supposed to dissolve, where nothing was expected to survive, and yet—somehow—everything did.
 
 Life did not pause here.
 
