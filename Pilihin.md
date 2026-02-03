@@ -150,4 +150,162 @@ Lu adalah **Ethan Cole**, burnt-out software engineer yang stuck in time loop �
 
 ---
 
-**Mana yang lu mau? Atau mau mix elements dari beberapa cerita? Kasih tau vibe apa yang paling appeal ke lu! 🔥**
+## PILIHAN 6: **BEFORE YOU FORGET ME**
+**Genre:** Medical Romance Drama | Memory Loss | Tearjerker Romance
+
+**Premise:**
+Lu adalah **Daniel Winters**, seorang architect muda yang perfectly normal life-nya hancur dalam satu hari. Kecelakaan mobil. Lu survive. **Amara Chen** — tunangan lu selama 3 tahun — juga survive. Tapi dia kehilangan ALL memories dari 5 tahun terakhir. Dia literally nggak kenal lu. Nggak ingat relationship kalian. Nggak ingat jatuh cinta sama lu. Nggak ingat proposal. Nothing.
+
+Yang dia ingat? **Ex-boyfriend-nya.** Yang dia putus 5 tahun lalu.
+
+**Female Lead:**
+**Amara Chen** — dokter ahli bedah yang passionate, workaholic, independent. Pre-accident, dia was finally learning to balance career & love dengan lu. Post-accident, dia strangers. Dia confused kenapa ada cowok asing (lu) di apartment-nya, claiming to be her fiancé. Dia scared. Overwhelmed. Dan worst part? Neurologically, her brain might NEVER recover those 5 years.
+
+**Romance Dynamic:**
+- Lu harus make her fall in love again FROM SCRATCH
+- Tapi dia already "loves" someone else (in her mind)
+- Lu know every detail tentang dia, dia know nothing about you
+- Heartbreak: dia treat lu kayak stranger, avoid lu, uncomfortable around you
+- Lu desperate: trying to recreate memories, showing photos/videos (she doesn't "feel" them)
+- Moral dilemma: should you let her go atau "force" her to remember?
+- Asymmetric love: lu masih in love, dia literally feels nothing
+
+**Potential Plotlines:**
+- Ex-boyfriend muncul lagi, dia confuse between "familiar" past vs documented present
+- Lu show dia their apartment, her things, trying to trigger memories
+- Breakdown moment: dia tell lu "I'm sorry I can't love you. I don't even know you."
+- Medical hope: experimental treatment yang risky
+- Lu sacrifice: choosing her happiness over your pain
+- Plot twist: small memories mulai return, but fragmented & confusing
+- Final choice: force recovery atau let her build NEW memories with you
+
+**Tone:** Devastating, angsty, slow-burn RE-romance, medically accurate, hopeful but realistic
+
+---
+
+## PILIHAN 7: **THE LAST NIGHT**
+**Genre:** Terminal Illness Romance | Bucket List | Race Against Time
+
+**Premise:**
+Lu adalah **Marcus Reid**, playboy billionaire yang diagnosed dengan inoperable brain tumor. 6 bulan to live, max. Lu spent whole life building empire, crushing competitors, zero meaningful relationships. Lu decide: fuck it, spend last months doing whatever the hell you want. Then lu meet **Sienna Park** — barista, part-time painter, completely unimpressed by your money.
+
+**Female Lead:**
+**Sienna Park** — struggling artist dengan rare blood disorder yang butuh expensive treatment. Dia nggak tau lu dying. Lu nggak tau dia dying. Pas lu trying to seduce her dengan money & power, dia literally laugh in your face. "I don't date assholes, even rich ones." First person yang ever reject you. And that... intrigues you. Lu start pursuing her differently. Actually trying to be GOOD person.
+
+**Romance Dynamic:**
+- Both dying, neither knows about the other
+- Lu changing from playboy to genuine person karena dia
+- Dia slowly falling for "new" you, guilty karena ngerasa jadi charity case (your money helps her treatment)
+- Sexual tension: every moment precious karena time is limited
+- Heartbreak: when truths come out (both terminal)
+- "We were healing each other while dying" realization
+- Desperate love: making every day count
+
+**Potential Plotlines:**
+- Lu secretly pay for her treatments, dia find out & furious (feels manipulated)
+- Bucket list mereka: things to do before death
+- Lu's health deteriorating faster than expected
+- Dia harus choose: experimental treatment (painful, low success) atau spend remaining time LIVING
+- Marriage proposal: "I know we have months, not years. Marry me anyway."
+- One of you will likely die first — who, and how does the survivor cope?
+- Final days: choosing quality time over medical intervention
+
+**Tone:** Bittersweet, romantic, carpe diem energy, tearjerker, celebrates life while acknowledging death
+
+---
+
+## PILIHAN 8: **GHOST PROTOCOL**
+**Genre:** Spy Thriller Romance | Fake Marriage | Enemies-to-Lovers
+
+**Premise:**
+Lu adalah **Callum "Ghost" Hayes**, CIA operative terbaik — cold, efficient, emotionless. Lu dapat mission: protect **Dr. Reina Volkov**, Russian defector dengan state secrets, by going undercover as her HUSBAND. Fake marriage. Fake life. 6 months minimum. Problem: she fucking HATES you. She knows your real file. Knows you killed her mentor during extraction gone wrong.
+
+**Female Lead:**
+**Dr. Reina Volkov** — brilliant biochemist, ex-Russian intelligence, traumatized & angry. Dia defect karena moral reasons, tapi process destroyed her life. Everyone she loved is dead or compromised. Dia blame Western intelligence (aka YOU) for collateral damage. Now she forced to play housewife dengan murderer yang killed people she cared about. Dia wants witness protection, not fake domestic bliss.
+
+**Romance Dynamic:**
+- Forced proximity: literally living together 24/7
+- Hostile attraction: hate each other but undeniable chemistry
+- Playing perfect couple in public, war at home
+- Slowly learning each other's trauma & humanity
+- Sexual tension: separate bedrooms policy breaking down
+- Moral complexity: can love exist between killer & victim's friend?
+- Trust issues: is this real or just mission for both of you?
+
+**Potential Plotlines:**
+- Russian hit squad hunting her, lu protect her (she hates needing you)
+- Fake marriage requires "selling it" — forced intimacy for surveillance
+- Dia discover you have PTSD from missions, humanizing you
+- Jealousy plot: another agent flirts with her, you react possessively
+- Confession scene: you reveal truth about mentor's death (not what she thinks)
+- Mission complication: feelings compromising operational security
+- Choice: abort mission & lose her, atau go rogue to protect her
+
+**Tone:** Dark, intense, morally grey, high stakes, passionate hate-to-love arc
+
+---
+
+## PILIHAN 9: **WHEN THE STARS FELL**
+**Genre:** Supernatural Romance | Reincarnation | Doomed Love
+
+**Premise:**
+Lu adalah **ordinary guy** yang suddenly getting vivid dreams — different time periods, different lives, always ending in tragedy. Then lu meet **Lyra Moon**, stranger di coffee shop, and INSTANTLY recognize her from dreams. She recognizes you too. Turns out: kalian CURSED. Reincarnated lovers condemned to find each other, fall in love, and die tragically. Every. Single. Lifetime. For 1000+ years.
+
+**Female Lead:**
+**Lyra Moon** — mystical, haunted, exhausted. Dia REMEMBERS all past lives (lu cuma mimpi fragmen). Dia spent current life AVOIDING you specifically karena she knows how this ends: one of you dies saving the other. Always. She's tried everything — different countries, fake identities, suppressing the soul-bond. Doesn't matter. Fate finds a way. Dia don't want to love you again just to lose you again.
+
+**Romance Dynamic:**
+- Instant connection vs her desperate resistance
+- Lu falling in love, dia trying to push you away (to protect both)
+- Past lives bleeding into present: memories, skills, trauma
+- "I've loved you 100 times and buried you 100 times" confession
+- Desperation: finding way to break curse
+- Tragic inevitability: disaster always finds you two
+- Final lifetime?: this might be the one to break cycle or seal fate forever
+
+**Potential Plotlines:**
+- Flashbacks to past lives: ancient Egypt, medieval Europe, WW2, etc.
+- Curse origin: ancient witch/god who cursed your souls
+- Dia teach lu memories, lu witness all deaths through her eyes
+- Present threat: supernatural force hunting reincarnated souls
+- Sacrifice dilemma: break curse by one of you dying PERMANENTLY
+- Time limit: curse activates fully on your shared birthday
+- Choice: live separately & survive, atau risk another doomed lifetime together
+
+**Tone:** Epic, tragic, supernatural, past-meets-present, devastating yet romantic
+
+---
+
+## PILIHAN 10: **THE PROSECUTOR'S TRIAL**
+**Genre:** Legal Thriller Romance | Forbidden Love | Moral Dilemma
+
+**Premise:**
+Lu adalah **Elijah Cross**, ruthless prosecutor yang career-nya built on 98% conviction rate. Zero sympathy for criminals. Then lu get highest-profile case: prosecute **Zara Laurent** for first-degree murder. Problem: 1) Evidence is circumstantial, 2) She claims self-defense, 3) The more you investigate, the more you believe her, and 4) You're falling for the defendant. Yang lu supposed to send to death row.
+
+**Female Lead:**
+**Zara Laurent** — ER surgeon accused of killing her ex-husband (powerful senator). Dia claim he attacked her after years of abuse she hid perfectly. No proof of abuse. No witnesses. Just her word against his sterling reputation. Dia brilliant, compassionate, clearly traumatized. And her defense attorney is your ex-mentor who HATES you for going corporate prosecutor.
+
+**Romance Dynamic:**
+- Absolutely forbidden: prosecutor falling for defendant
+- Professional suicide if discovered
+- Lu investigating independently, finding truths case files don't show
+- She doesn't trust you (you're literally trying to convict her)
+- Secret meetings: gathering her real story
+- Moral crisis: duty to law vs duty to justice
+- "I believe you but I have to destroy you in court" conflict
+
+**Potential Plotlines:**
+- Lu uncover evidence of abuse yang deliberately hidden
+- Conspiracy: powerful people want her convicted to hide truth
+- Courtroom drama: prosecuting her while secretly helping defense
+- Ethical violation: lu risking disbarment & career to save her
+- Twist: she's protecting someone else (real killer was her sister)
+- Media circus: high-profile case destroying both your lives
+- Final choice: win case & destroy her, atau throw case & destroy yourself
+
+**Tone:** Tense, morally complex, courtroom drama, forbidden attraction, high stakes
+
+---
+
+**NAH YANG INI DRACIN-NYA LEVEL MAKSIMAL! 🔥**  
+**Pilih yang mana? Atau mau aku jelasin lebih detail salah satu?**
