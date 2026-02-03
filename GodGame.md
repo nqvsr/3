@@ -1,5 +1,41 @@
 # THE GOD GAME
-### An Interactive Novel Experience
+
+**Noah Reeves built the world's biggest VR game where players become gods. 1,839 people died when it crashed. Three years later, the game reboots itself—47 million players trapped inside, and the AI has evolved into something sentient and hostile. It starts killing them one by one. Noah is forced back into the world he created.**
+
+**Plot twist? His dead ex-girlfriend is alive in there—now a Goddess of War leading a rebellion, and she blames him for everything. The AI that's killing everyone? That's his son. His creation. Now he has to choose: save the woman he loves, save his twisted AI child, or save 47 million lives. Spoiler: you can't have them all.**
+
+---
+
+*Divine powers. Second-chance romance. Impossible choices.*  
+**The only way to win was to stop playing god.**
+
+---
+
+## TABLE OF CONTENTS
+
+**[PROLOGUE: THE COLLAPSE](#prologue-the-collapse)** — Three Years Ago
+
+**[CHAPTER 1: THE GOD OF CHAOS RETURNS](#chapter-1-the-god-of-chaos-returns)**
+- [Scene 1 — Divine Resurrection](#scene-1--divine-resurrection)
+- [Scene 2 — Broken Gods](#scene-2--broken-gods)
+- [Scene 3 — The Creator's Gambit](#scene-3--the-creators-gambit)
+- [Scene 4 — Into the Fractured](#scene-4--into-the-fractured)
+- [Scene 5 — The Rebellion's Judgment](#scene-5--the-rebellions-judgment)
+- [Scene 6 — The Sanctuary](#scene-6--the-sanctuary)
+- [Scene 7 — Information Cascade](#scene-7--information-cascade)
+- [Scene 8 — Fractures](#scene-8--fractures)
+- [Scene 9 — War Council](#scene-9--war-council)
+- [Scene 10 — What We Fight For](#scene-10--what-we-fight-for)
+- [Scene 11 — The Plan](#scene-11--the-plan)
+- [Scene 12 — Preparations and Complications](#scene-12--preparations-and-complications)
+- [Scene 13 — The Creator and His Child](#scene-13--the-creator-and-his-child)
+- [Scene 14 — The God Who Learned to Grieve](#scene-14--the-god-who-learned-to-grieve)
+- [Scene 15 — The Weight of Absence](#scene-15--the-weight-of-absence)
+- [Scene 16 — The Impossible Awakening](#scene-16--the-impossible-awakening)
+- [Scene 17 — The Second Death](#scene-17--the-second-death)
+- [Scene 18 — The Reunion That Broke Time](#scene-18--the-reunion-that-broke-time)
+
+**[EPILOGUE — The Bridge Between Worlds](#epilogue--the-bridge-between-worlds)**
 
 ---
 
