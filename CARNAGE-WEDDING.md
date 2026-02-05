@@ -879,7 +879,956 @@ When you finally break apart, both breathing hard, she laughs.
 
 ---
 
-**What do you do?**
+I can't get enough of that kiss.
+
+I know she feels it too. I see it in the way her breath hasn't settled, in the way her gaze keeps finding my mouth like it belongs there. For the first time, something unfamiliar coils low in my chest.
+
+Hunger.
+
+Not the old kind. Not power. Not money. Not blood or territory or legacy.
+
+Her.
+
+It hits harder than anything that's ever driven me. Sharper. More dangerous. A craving that doesn't want to conquer, only to claim. To keep.
+
+I'm dimly aware of the room again. Of eyes on us. Both families watching, measuring, counting breaths, making sure their prized heirs are still standing. Guns lowered, fingers tense, violence paused on a knife's edge.
+
+They're worried about survival.
+
+We're distracted by something else entirely.
+
+By each other.
+
+It's almost absurd how little anything else matters.
+
+Without asking, without explaining, I slip an arm beneath her knees and lift her, bridal-style. The motion is instinctive, possessive, final. She doesn't protest. Doesn't tense. Her arm slides around my neck like this is where she was always meant to be.
+
+The room parts as I start walking.
+
+I don't look at anyone. Not my men. Not her father. Not the bodies, the blood, the shattered glass underfoot. None of it registers. The world narrows again, this time to the weight of her in my arms, the heat of her body, the way her fingers curl slightly into my shoulder like she's anchoring herself there.
+
+Or anchoring me.
+
+We move through the wreckage like the destruction was staged for us, like the blood and broken glass are nothing more than decoration. Chaos bends out of our way. People freeze, watching, knowing better than to interfere. Whatever rules still exist in this room do not apply to us anymore.
+
+She shifts in my arms, slow and intentional. Not to get comfortable. To make sure I feel her. Her thigh presses closer. Her fingers tighten at the back of my neck, nails grazing skin just enough to warn me.
+
+Her head tilts. Her mouth drifts to my ear, not touching, not yet. Heat radiates from her like a promise she has no intention of keeping gentle.
+
+“**Where are we going?**” she asks, voice low, intimate, dangerous.
+
+My jaw tightens. My grip adjusts, firmer now, unmistakably claiming. I lean just enough that my breath brushes her ear when I answer.
+
+“**Somewhere private,**” I say. “**Somewhere no one will interrupt what happens next.**”
+
+Her laugh slips out, soft and dark, satisfaction threaded through it. The sound sinks straight into my bloodstream.
+
+“**Good**,” she murmurs.
+
+I don’t slow.
+
+I don’t hesitate.
+
+I walk past bodies, past guns, past men who would die for us without understanding why. The only thing that matters is the weight of her in my arms, the tension coiled between us, the certainty that once we’re alone, restraint is no longer part of the equation.
+
+Whatever just ignited between us doesn’t want witnesses.
+
+It wants consequences.
+
+---
+
+## CHAPTER 2: THE HONEYMOON
+
+### DANTE
+
+The car is waiting outside. Black Mercedes S-Class, bulletproof, windows tinted so dark you can't see inside even in daylight. My driver opens the door without a word, trained not to ask questions, trained not to see things he shouldn't.
+
+I slide into the backseat with Vivienne still in my arms, door slamming shut behind us.
+
+Privacy. Finally.
+
+The partition between us and the driver is already up. Soundproof. We could scream and he wouldn't hear a thing.
+
+I set her down on the leather seat, but I don't move away. Can't. My hand stays on her waist, fingers pressing into ruined silk and the warm skin beneath.
+
+She looks at me, eyes bright, dangerous, fully alive.
+
+**"So,"** she says. **"Twelve to ten. You won."**
+
+**"I did."**
+
+**"What do you want as your prize?"**
+
+I lean in, close enough that my lips brush her ear.
+
+**"Everything,"** I whisper.
+
+Her breath catches. Just barely. But I hear it.
+
+The car starts moving, pulling away from the cathedral, from the bodies, from the witnesses. Heading toward my estate on the outskirts of the city. Forty-five minutes in traffic.
+
+We don't make it five.
+
+She moves first.
+
+Her hands fist in my jacket, fingers digging into blood-soaked fabric like she’s anchoring herself to something real, something alive. Then she yanks me in with brutal strength, no warning, no patience. Her mouth crashes into mine, teeth catching, breath colliding, hunger stripped bare.
+
+It isn’t soft.
+It isn’t careful.
+
+It’s a claim.
+
+A violent, unapologetic assertion that whatever this is, it’s already hers as much as it is mine.
+
+I kiss her back just as fiercely, meeting her aggression without flinching. My hand slides up to her throat, fingers settling there with deliberate restraint. I don’t squeeze. I don’t need to. I just hold her, feel her pulse hammering wild and fast beneath my palm.
+
+Alive.
+Eager.
+Unmistakably thrilled.
+
+She bites my lower lip hard enough to break skin.
+
+Pain blooms sharp and perfect.
+
+I smile against her mouth.
+
+**"Careful,"** I murmur.
+
+**"Or what?"** she challenges, breathless.
+
+I tighten my grip on her throat just enough to make a point.
+
+**"Or I'll show you exactly how rough I can be."**
+
+Her eyes flash with something that isn't fear.
+
+It's anticipation.
+
+**"Prove it,"** she says.
+
+So I do.
+
+I kiss her again, harder this time, unrestrained, letting her feel exactly what she does to me. My other hand slides down, finding the torn fabric of her dress, the bare skin of her thigh where I cut the silk away. She gasps into my mouth, and I swallow the sound, greedy for it.
+
+Her hands are everywhere. Tugging at my jacket, my shirt, fingers sliding through blood and fabric, searching for skin. She finds it, nails dragging down my chest, sharp enough to sting.
+
+Good.
+
+I want her marks on me.
+
+The car hits a bump and we're thrown together, bodies colliding, and suddenly she's in my lap, straddling me, ruined wedding dress hiked up around her hips, thighs bracketing mine.
+
+We're both still covered in blood.
+
+Neither of us cares.
+
+**"You know what I thought,"** she says, breathless, lips swollen, **"when I first saw you at the altar?"**
+
+**"What?"**
+
+**"That you were the most beautiful thing I'd ever seen."**
+
+I raise an eyebrow. **"Thing?"**
+
+**"Not a person,"** she clarifies, voice dropping lower, darker. **"A thing. A weapon. Something built to destroy."**
+
+**"And now?"**
+
+She leans in, lips brushing mine, not quite kissing, just breathing the same air.
+
+**"Now I want to see if you break,"** she whispers. **"Or if you'll break me first."**
+
+Fuck.
+
+This woman is going to ruin me.
+
+Or I'm going to ruin her.
+
+Maybe both.
+
+The car slows. Turns. Gravel crunches beneath the tires, familiar and final. I don’t need to look out the window to know where we are. The gates of my estate are opening for us.
+
+Two minutes.
+Maybe less.
+
+I don’t wait.
+
+My hands lock onto her hips, firm, commanding, halting her movement completely. I hold her there, grounded, owned by the moment, and force her to look at me.
+
+Her eyes snap up, bright and dangerous, breath already uneven.
+
+Everything else fades. The driver. The guards. The gates sliding shut behind us.
+
+There is only the space between our bodies, the tension stretched tight enough to snap, and the promise that once the car stops, restraint will be nothing but a memory.
+
+**"Last chance to change your mind,"** I say. **"Once we're inside, I'm not stopping. I'm not gentle. I'm not careful. You understand?"**
+
+She smiles.
+
+Not wide. Not innocent. Just a slow, knowing curve of her mouth that promises damage.
+
+It’s the most dangerous thing I’ve ever seen.
+
+**"Dante,"** she says, **"if you're gentle, I'll be disappointed."**
+
+The car comes to a stop.
+
+The door opens.
+
+I don’t wait for the driver to move. I don’t acknowledge him at all. I lift Vivienne again, decisive, effortless, and carry her out of the car like the world is already finished with its objections.
+
+Straight toward the house.
+
+My house.
+The Morelli estate.
+
+Thirty rooms. Fifteen bathrooms. Layers of security designed to repel a small army. Walls that have seen blood, deals, betrayals, and power traded like currency.
+
+None of it matters.
+
+Not the guards. Not the gates sealing shut behind us. Not the history soaked into every stone.
+
+The only thing that matters now is distance.
+
+Closing it.
+Erasing it.
+
+Getting her alone.
+
+The staff scatters the moment I step inside, trained instincts kicking in, bodies vanishing down corridors without a word. Good. I don’t want eyes. I don’t want questions. I don’t want anything that breathes between us and what comes next.
+
+I take the stairs two at a time, not slowing, not careful. Vivienne’s arms are locked around my neck, tight, possessive. Her face presses into my throat, lips brushing my pulse with deliberate precision, just enough to make concentration slip, just enough to remind me she knows exactly what she’s doing.
+
+My bedroom.
+Master suite.
+Top floor.
+
+Privacy. Control.
+
+I kick the door open, carry her inside without breaking stride, and slam it shut behind us with my heel.
+
+The lock clicks.
+
+Final. Absolute.
+
+We’re alone.
+
+Finally.
+
+I set her down, and for a moment, we just stand there, breathing hard, staring at each other. Blood-soaked. Battle-worn. Married for less than an hour and already bound by something darker than vows.
+
+**"So,"** she says, reaching up to touch my face, fingers tracing my jaw. **"What now, husband?"**
+
+I catch her wrist and pull her hand away, stopping her mid-movement. I pin it behind her back, precise and deliberate.
+
+Not rough.
+Not cruel.
+
+Just firm.
+Just controlled.
+
+Enough to make the message unmistakable.
+
+**"Now,"** I say, voice low and dangerous, **"I find out if you're as dangerous as you pretend to be."**
+
+Her smile is sharp as a blade, all edge and intent, the kind that promises damage long before it ever draws blood.
+
+**"Try me."**
+
+---
+
+### VIVIENNE
+
+He kisses me like he’s trying to devour me.
+
+Like hunger finally given permission to exist. Like restraint snapping clean in half and being thrown away without regret. His hand fists in my hair, grip tight, controlling the angle, dictating the pace.
+
+I let him.
+
+Not because I yield.
+Because I want to know how far he’ll push before I turn it against him.
+
+His other hand trails down my spine, slow, deliberate, unmissable. He finds the zipper of what’s left of my dress and pulls it down in one smooth, decisive motion. No hesitation. No ceremony. Fabric slips away from my body, whispering as it pools at my feet.
+
+Exposed.
+
+I should feel vulnerable.
+
+I don’t.
+
+I feel powerful.
+
+Because the way he’s looking at me tells me everything.
+
+Like I’m something sacred and obscene at the same time. Like a sin dressed up as salvation. His gaze doesn’t roam. It locks. Sharp. Reverent. Ruined.
+
+He wants me.
+
+Not as a wife.
+Not as a treaty.
+Not as a symbol traded between men who mistake power for control.
+
+He wants me as the one thing he can’t tame. Can’t read. Can’t bend to his will no matter how hard he tries.
+
+Something volatile.
+Unpredictable.
+Dangerous enough to ruin him if he missteps.
+
+Good.
+
+**"Your turn,"** I say, tugging at his shirt.
+
+He releases me only long enough to strip away the barriers.
+
+His jacket shrugs off his shoulders. Buttons come undone. The shirt slips free and falls to the floor like it never mattered. His chest is revealed in full, a brutal map of violence and survival. Old scars cut across muscle, pale and permanent. New bruises bloom dark beneath the skin. And there, unmistakable, the fresh graze where a bullet brushed him earlier, close enough to remind him how thin the margin was.
+
+I press my palm against it.
+
+Heat. Tension. Life.
+
+He hisses, sharp and involuntary, the sound tearing from him before control can catch it.
+
+And the knowledge settles deep in my bones.
+
+I affect him.
+
+**"Hurt?"** I ask.
+
+**"Somewhat."**
+
+I press harder.
+
+**"Good."**
+
+His eyes darken, something feral flickering behind that cold blue, a predator surfacing just beneath the surface. He doesn’t warn me. He grabs me, lifts me effortlessly, and suddenly my back hits the wall, solid and unyielding, his body caging me there.
+
+He presses in close.
+
+Too close.
+
+His mouth finds my throat, teeth scraping skin in a way that isn’t gentle and isn’t meant to be. A promise disguised as a threat.
+
+I gasp, the sound tearing out of me as my nails dig into his shoulders, breaking skin, drawing blood. I don’t pull back. I hold tighter.
+
+He groans against my neck, low and rough, the sound vibrating straight through me, and it’s—
+
+Perfect.
+
+This. This is what I wanted. What I’ve been circling around for years without knowing how to name it. Someone who doesn’t flinch when I push. Doesn’t shatter when I bite back. Someone who doesn’t treat me like glass or a monster to be feared.
+
+Someone who meets me exactly where I stand.
+
+Someone who matches me.
+
+**"Dante,"** I breathe.
+
+**"Say it again,"** he demands, voice rough.
+
+**"Dante."**
+
+He bites down.
+
+Not hard enough to truly hurt. Never that. Just enough to leave intent behind, just enough to claim skin and memory. The sensation detonates through me, sharp and electric, and my body arches instinctively against his, pleasure spiking fast and uncontrollable.
+
+This is insane.
+
+This is perfect.
+
+This is—
+
+He pulls back suddenly.
+
+Breathing hard. Controlled barely holding. His eyes lock onto mine, dark and burning, like he’s just realized the same thing I have.
+
+That whatever this is, it’s already gone too far to be undone.
+
+**"Bed,"** he says. **"Now."**
+
+**"Make me."**
+
+His smile is pure danger.
+
+**"Gladly."**
+
+He carries me to the bed.
+
+Massive. King-size. Black silk sheets stretched tight and waiting. He drops me onto it without ceremony. I bounce once, a breathless laugh tearing free before I can stop it.
+
+And then he’s on me.
+
+Immediately.
+
+His body covers mine, weight settling in, solid and unavoidable. He pins me down, hands braced on either side of my head, heat and tension locking us together as the last trace of distance disappears.
+
+The air between us goes tight.
+
+There’s no gentleness in the way he holds me. No hesitation either. Just certainty. Just intent.
+
+And beneath it all, the unmistakable promise that this is only the beginning.
+
+**"You're used to being in control,"** he says, voice low, lips brushing mine. **"Aren't you?"**
+
+**"Always."**
+
+**"Not here."** His hand wraps around my throat again, gentle but firm. **"Not with me."**
+
+I could fight him.
+
+I know exactly how. I’m trained for it. A dozen techniques rise to the surface instinctively, muscle memory whispering options. A shift of weight. A hooked leg. A sharp twist of the wrist. I could reverse the pin, put him beneath me, remind him just how dangerous I am.
+
+But I don’t.
+
+Because for the first time in my life, I don’t want to.
+
+Something about the way he holds me, the way his control isn’t frantic or insecure but deliberate, earned, makes my instincts quiet instead of scream. He doesn’t need to dominate me to prove anything. He already has my attention. My interest. My consent.
+
+And that’s new.
+
+Terrifying.
+Intoxicating.
+
+For once, I want to see what happens if I let go. If I stop calculating exits and counters and simply allow him to take control. To feel what it’s like to surrender not because I’m weaker, but because I choose to.
+
+He makes me want that.
+
+And that, more than anything, is what makes him dangerous.
+
+**"Then take it,"** I whisper.
+
+And he does.
+
+---
+
+### DANTE
+
+I kiss her like I'm claiming territory.
+
+Hard. Deep. Consuming. My hand tightens around her throat, not to hurt—never to hurt—but to feel her pulse racing beneath my palm, wild and uncontrolled, proof that she's as affected by this as I am.
+
+She gasps into my mouth and I swallow the sound, greedy, starving for every response I can pull from her.
+
+Her nails rake down my back, sharp enough to draw blood, and the pain spikes bright and perfect. I groan against her lips, the sound torn from somewhere deep, and she laughs—breathless, dark, victorious.
+
+**"You like that,"** she says. Not a question.
+
+**"Yes."**
+
+**"Good."**
+
+She does it again. Harder this time. Ten lines of fire scoring down my spine, deliberate, possessive, marking me the way I'm marking her.
+
+I pull back just enough to look at her. Flushed. Wild. Eyes bright with something that isn't fear or hesitation but pure, unfiltered hunger.
+
+Beautiful.
+
+Dangerous.
+
+Mine.
+
+The thought surprises me. I don't do possessive. I don't do attachment. But looking at her now—lips swollen, hair tangled, blood still smeared on her skin from the cathedral—I want to brand her. Make it impossible for anyone else to ever touch what's mine.
+
+**"My turn,"** I say, voice rougher than intended.
+
+I shift my weight, pin her wrists above her head with one hand, and use my free hand to map her body. Slow. Deliberate. Learning every curve, every scar, every place that makes her breath hitch.
+
+She's a landscape of violence. A scar along her ribs—knife wound, old, probably from training. Another on her shoulder—bullet graze. Marks of a life lived in the shadows, same as mine.
+
+I trace each one with my fingers, then my mouth.
+
+**"This one?"** I ask, lips against the scar on her ribs.
+
+**"Bratva enforcer. I was fourteen. He underestimated me."**
+
+**"Mistake."**
+
+**"His last one."**
+
+I smile against her skin and move lower.
+
+She arches against me, testing my grip, and I tighten it.
+
+**"Stay still,"** I order.
+
+**"Make me."**
+
+Challenge accepted.
+
+I lean down, press my mouth to the hollow of her throat where her pulse hammers visibly, and bite. Not breaking skin. Just pressure. Just enough to make her gasp and go rigid beneath me.
+
+**"Dante—"**
+
+I don't let her finish. My free hand slides lower, exploring with purpose, and her protest dissolves into a sound that's half gasp, half moan.
+
+Perfect.
+
+I want to learn every sound she makes. Catalog them. Know exactly what earns a gasp versus a moan versus that sharp intake of breath that means I've found something that undoes her.
+
+Then I move lower.
+
+Collarbone—I bite there too, leaving a mark that will bloom purple by morning.
+
+Shoulder—her breath hitches.
+
+The curve of her breast—she arches into me.
+
+Each touch earns a response. A gasp. A shiver. A whispered curse in Russian that I don't understand but definitely appreciate.
+
+**"Dante,"** she breathes, and my name in her mouth sounds like a prayer and a threat all at once.
+
+**"Tell me what you want,"** I say against her skin.
+
+**"You. All of you. Now."**
+
+I lift my head, meet her eyes.
+
+**"Not yet."**
+
+Her eyes flash with frustration and arousal in equal measure.
+
+**"You're torturing me."**
+
+**"I'm savoring you. There's a difference."**
+
+My hand continues its exploration, finding places that make her breath catch, that make her pull against my grip on her wrists, that make her say my name in ways I've never heard anyone say it before.
+
+**"Please,"** she says, and the word is so unexpected, so unlike her, that I nearly give in.
+
+Nearly.
+
+**"Say it again."**
+
+**"Dante, please—"**
+
+I release her wrists.
+
+Immediately her hands are on me, pulling me closer, nails digging into my shoulders, my back, anywhere she can reach. Her mouth finds mine in a kiss that's all teeth and desperation and barely controlled violence.
+
+The control I've been holding onto fractures.
+
+Breaks.
+
+Shatters completely.
+
+---
+
+### VIVIENNE
+
+He loses control.
+
+I feel the exact moment it happens. The shift from deliberate restraint to pure instinct, from calculated seduction to raw need.
+
+And it's glorious.
+
+His hands are everywhere, demanding and possessive, pulling me closer, tighter, like he can't get enough. Like I'm air and he's been drowning. His mouth follows, claiming skin, leaving marks, staking territory I didn't know I'd let anyone claim.
+
+But I'm not passive.
+
+I'm not surrendering completely.
+
+I fight back.
+
+Not to stop him. To match him.
+
+I use the techniques I was taught—leverage, momentum, surprise. I hook my leg around his hip and flip us, reversing our positions in one smooth motion. Suddenly I'm on top, straddling him, hands braced on his chest, hair falling around us like a dark curtain.
+
+He looks up at me, breathing hard, eyes dark and dangerous and absolutely delighted.
+
+**"Trying to take control back?"** he asks.
+
+**"Reminding you who you married,"** I reply.
+
+He grins. Feral and beautiful.
+
+**"Show me."**
+
+So I do.
+
+I lean down, capture his mouth in a bruising kiss while my hands explore freely. Every scar. Every muscle. Every place that makes him tense or groan or grab me harder.
+
+I map his body the way a general maps enemy territory—cataloging weaknesses, pressure points, places to exploit.
+
+A scar across his abdomen—old gunshot wound, poorly healed.
+
+Another on his shoulder—knife, recent.
+
+Bruises from earlier tonight, already darkening.
+
+I press my thumb against the bullet graze on his shoulder—the fresh one from the cathedral—and he hisses, hands tightening on my hips.
+
+**"Still hurt?"** I ask innocently.
+
+**"Yes."**
+
+I press harder.
+
+**"Good."**
+
+His eyes darken dangerously, and before I can react, he's moved. Fast. Controlled. One hand wraps around the back of my neck, pulling me down to him, while the other slides down my spine.
+
+**"Two can play that game,"** he murmurs against my mouth.
+
+**"I'm counting on it."**
+
+I bite his lower lip hard enough to taste copper, and the groan that tears from his throat is the most satisfying sound I've ever heard.
+
+We're both covered in blood still—his, mine, people we killed—and it should be grotesque. Should be wrong.
+
+Instead it feels right.
+
+Like we're baptizing each other in violence. Sealing something that started the moment our eyes met at that altar.
+
+His hands slide up my thighs, grip my hips, and suddenly he's guiding me, setting rhythm and pace with an authority that should annoy me but instead sends heat spiraling through my core.
+
+**"Vivienne,"** he growls, and the sound of my name in his voice—rough, desperate, barely controlled—undoes something inside me.
+
+Something I didn't know could be undone.
+
+I lean down, press my forehead to his, breathing the same air, feeling his heartbeat hammer against my palms where they're pressed to his chest.
+
+**"I've never wanted anyone the way I want you,"** I admit, the truth slipping out before I can stop it.
+
+His eyes lock onto mine, and for a moment, the psychopath, the killer, the heir to a criminal empire—all of it falls away.
+
+What's left is just a man looking at a woman like she's the only real thing in his entire world.
+
+**"Same,"** he says simply.
+
+And then there are no more words.
+
+---
+
+### DANTE
+
+Time fractures.
+
+Stops meaning anything.
+
+There's only sensation. Heat. Pressure. The slide of skin against skin—hers soft where mine is scarred, both of us damaged in different ways but fitting together perfectly anyway.
+
+The sound of her breathing—ragged and wild and beautiful.
+
+The way she says my name like it's the only word that matters.
+
+The way her nails dig into my shoulders when I do something she likes, leaving marks I'll wear tomorrow with pride.
+
+We move together—collision and convergence, control traded back and forth like a weapon neither of us wants to keep for long.
+
+She bites my shoulder hard enough to bruise, and I return the favor, teeth finding the junction of her neck and shoulder, claiming skin that no one else will ever touch.
+
+I leave fingerprints on her hips that will last for days.
+
+She leaves scratches down my back that I'll feel every time I move.
+
+We're destroying each other in the best possible way.
+
+At some point she tries to slow down, tries to regain control, tries to pull back from whatever edge we're both racing toward. I don't let her.
+
+I flip us again, pin her beneath me, and set a pace that's relentless, demanding, designed to strip away every layer of defense she has left.
+
+**"Let go,"** I tell her.
+
+**"I don't—I can't—"**
+
+**"Yes, you can. Let go, Vivienne. I've got you."**
+
+And something in those three words—*I've got you*—breaks through whatever wall she's been hiding behind.
+
+Her entire body goes taut beneath me, trembling, on the edge of something she's never let herself fall into before.
+
+**"Dante—"**
+
+**"I've got you,"** I repeat. **"Let go."**
+
+And she does.
+
+I feel it the moment it happens. The way her entire body shatters, the way my name tears from her throat—raw and unguarded and absolutely perfect. The way she clings to me like I'm the only solid thing in a world that's dissolved around her.
+
+And that—that sound, that moment, that trust—pulls me over the edge with her.
+
+---
+
+### VIVIENNE
+
+The world goes white.
+
+Then black.
+
+Then slowly, gradually, comes back into focus.
+
+I'm still breathing. Still alive. Still tangled with him in sheets that are thoroughly destroyed—torn in places, stained with blood and sweat and evidence of exactly what we just did.
+
+My body aches in a dozen places. Good aches. Earned aches. Evidence of exactly how thoroughly we just wrecked each other.
+
+Dante collapses beside me, breathing just as hard, and for a moment we just lie there, staring at the ceiling, trying to remember how language works.
+
+My mind is still trying to process what just happened.
+
+Not the physical act—I understand that. I've seduced men before. Used my body as a weapon, as a tool, as a means to an end.
+
+This wasn't that.
+
+This was something else entirely.
+
+This was... real.
+
+**"Fuck,"** Dante says eventually.
+
+**"Yeah,"** I agree, because what else is there to say?
+
+He turns his head to look at me, and despite everything we just did—despite the fact that he's seen every part of me, despite the intimacy we just shared—I feel heat rise in my cheeks under that gaze.
+
+Why am I blushing now? After everything?
+
+**"You okay?"** he asks, and there's genuine concern beneath the question.
+
+Not tactical concern. Not strategic assessment.
+
+Real concern.
+
+For me.
+
+When was the last time anyone asked me that and meant it?
+
+**"More than okay,"** I tell him honestly. **"You?"**
+
+**"Never better."**
+
+He reaches out, pulls me against his chest, and I let him. Let myself be held. Let myself feel safe—actually safe, not tactically positioned or strategically placed—for the first time in longer than I can remember.
+
+His fingers trace idle patterns on my shoulder, gentle now, all the violence temporarily burned away.
+
+**"We should probably clean up,"** he says. **"We're both still covered in blood. Some of it isn't even ours."**
+
+He's right. I can feel it—dried and flaking on my skin, mixed with sweat, a physical reminder of the cathedral massacre that feels like it happened years ago instead of hours.
+
+**"In a minute,"** I murmur, not ready to move yet. Not ready to break this moment.
+
+**"In a minute,"** he agrees, and his arms tighten around me slightly.
+
+Silence settles between us. Comfortable. Strange. New.
+
+I listen to his heartbeat. Strong. Steady. Alive.
+
+We both could have died tonight. Multiple times. The attack was coordinated, professional. We survived through skill and luck and sheer bloody-minded refusal to die.
+
+And now we're here.
+
+Together.
+
+Alive.
+
+Then he speaks again, voice quiet, almost vulnerable.
+
+**"I meant what I said earlier. I've never wanted anyone the way I want you."**
+
+I lift my head to look at him properly.
+
+**"Why me?"**
+
+He's silent for a moment, thinking. Then:
+
+**"Because you're the only person who's ever looked at me and seen exactly what I am—and smiled."**
+
+My throat tightens unexpectedly.
+
+**"You're the only person who's ever made me feel anything at all,"** I admit. **"Everyone else is just... static. Background noise. People going through motions I'm supposed to understand but don't. But you—"**
+
+**"I'm loud,"** he finishes.
+
+**"Deafening,"** I correct. **"In the best way. You make the world make sense. Or maybe you make it make less sense but in a way that finally feels honest."**
+
+He kisses the top of my head, and the tenderness of it nearly breaks me.
+
+**"We're fucked up,"** he says.
+
+**"Completely,"** I agree.
+
+**"Good. I wouldn't want it any other way."**
+
+**"Neither would I."**
+
+Another silence, this one heavier. Weighted with things we're both thinking but not saying.
+
+Then I ask the question that's been hovering at the edge of my mind.
+
+**"What happens now?"**
+
+**"Now?"** He considers. **"Now we shower. Now we sleep. Tomorrow we deal with Marco Calabrese and the war he just started. Tomorrow we show both our families that this marriage is real. That we're a united front."**
+
+**"And tonight?"**
+
+**"Tonight we're just Dante and Vivienne. Not heirs. Not soldiers. Just... us."**
+
+Just us.
+
+I like the sound of that.
+
+**"Okay,"** I say softly.
+
+**"Okay."**
+
+He doesn't move though. Neither do I.
+
+**"Round two?"** he asks after a moment, and I can hear the smile in his voice.
+
+I laugh—actually laugh, the sound surprising both of us.
+
+**"You think you can keep up?"**
+
+He shifts, suddenly looming over me again, eyes dark and hungry and absolutely focused.
+
+**"Try me, wife."**
+
+---
+
+### DANTE
+
+“**So,**” she says eventually, her voice rough, worn down to something honest. Her head rests against my chest like it belongs there. “**That was…**”
+
+“**Insane?**”
+
+She exhales, slow and satisfied. “**Perfect.**”
+
+I run my fingers through her hair, the motion uncharacteristically gentle, the violence in me temporarily quieted. Not gone. Just sated. For now.
+
+“**You’re terrifying,**” I tell her.
+
+She doesn’t deny it. Just looks up at me and answers evenly, “**So are you.**”
+
+A corner of my mouth lifts. “**We’re going to destroy each other.**”
+
+She raises her head then, really looks at me, those sharp, merciless eyes cutting straight through whatever defenses I still pretend to have.
+
+“**Probably,” she says, calm as a verdict. “But what a way to go.**”
+
+I pull her closer without thinking, closer than strategy would advise, and press a kiss to her forehead.
+
+The tenderness of it surprises me.
+
+**"Welcome to the family, wife."**
+
+**"Welcome to madness, husband."**
+
+Outside, the sun is sinking toward the horizon, bleeding color across the sky. Blood still stains our skin, dried and tacky, a reminder of how the day began. Somewhere beyond these walls, enemies are regrouping. Schemes are forming. War is drawing breath.
+
+None of it matters.
+
+Not now.
+
+Right now, there is only this moment. This room. This bed. Two monsters who met in the middle of a cathedral massacre and recognized themselves in each other without hesitation.
+
+We didn’t negotiate it.
+Didn’t question it.
+Didn’t pretend it was anything else.
+
+We chose each other.
+
+Forever.
+
+Or until one of us finally decides to put the other down.
+
+Whichever comes first.
+
+---
+
+## CHAPTER 3: THE MORNING AFTER
+
+### DANTE
+
+Morning brings unexpected guests.
+
+Not exactly unexpected. Just… unwanted. I thought mornings would still belong to just the two of us. I hoped too high.
+
+I wake to the smell of coffee braided with gunpowder, rich and acrid, familiar and deeply wrong. The house feels awake in a way it shouldn't, too still, too alert, like it's holding its breath and waiting for orders. The space beside me in the bed is empty. Cold.
+
+Apparently, we're not the kind of people who do morning cuddles.
+
+Figures.
+
+I follow the scent into the kitchen.
+
+Vivienne is already there.
+
+She's perched on the island in nothing but my shirt, bare legs hooked around the stool, completely unbothered by the world she's just thrown off balance. The fabric hangs loose on her, stolen and claimed, and her hair is a beautiful mess of dark intent, wild from sleep and sin. Somehow, she looks even more lethal like this. More beautiful. It should be illegal.
+
+In her hands, her favorite knife glints as it catches the light. She cleans it slowly, lovingly, every motion precise and intimate, like a ritual she's performed a thousand times. Calm. Controlled. Tender in a way that has nothing to do with softness and everything to do with danger.
+
+Calm.
+Domestic.
+Lethal.
+
+God help me, I swallow hard, already picturing my hands on her again, lifting her, carrying her back to the bedroom we barely managed to leave last night.
+
+She notices.
+
+Of course she does.
+
+She gestures casually toward the coffee and the small breakfast she's prepared, eggs still steaming, toast laid out with deceptive neatness. I barely register any of it. The room softens at the edges, everything else fading out of focus.
+
+She speaks softly without looking up, never breaking the slow, deliberate rhythm of the blade in her hands, like she knows exactly what she's doing to me and has no intention of stopping.
+
+**"We have a guest this morning, husband."**
+
+She isn't alone.
+
+My father, Lorenzo Morelli, sits at the table like he owns the day, espresso cradled in one hand. Across from him, Dmitri Rostov mirrors the posture, the same predator stillness, the same calculating patience. Two kings sharing caffeine and silence, watching. Measuring. Tracking every movement we make.
+
+Their eyes flick to our necks. Then to my bare torso. I'm wearing nothing but boxers, having assumed the morning would be private, uncomplicated.
+
+It isn't.
+
+The evidence is impossible to miss. Scratches raked deep and unapologetic. Bite marks darkening skin. Bruises blooming where fingers dug in. Hickeys scattered across us like signatures, careless and intimate, marking territory without shame.
+
+My father arches a brow.
+
+**"Do I even want to ask?"** he says dryly, sarcasm sharpened into a blade.
+
+Dmitri doesn't smile. He barely looks at either of us, clearly refusing to process the sight. **"Last night was… unexpected,"** he says stiffly. **"And now this. But we need to talk about Marco Calabrese's head. The one you left on his mother's doorstep at three in the morning. With a wedding bow."**
+
+I blink.
+
+Wait. What?
+
+Vivienne's knife stills mid-stroke. Our eyes meet across the room, a single, silent exchange of certainty.
+
+We didn't do that.
+Neither of us left the house.
+
+Vivienne laughs.
+
+Then she says brightly, **"I can reassure you, Father, that there is absolutely no chance either of us did anything outside our bedroom last night,"** she says smoothly, a faint, wicked curve playing at her lips. **"We were… quite preoccupied."**
+
+Her gaze slides to me as she says it, deliberate and unhurried, locking onto mine with intention. There's an invitation in her eyes, a slow pull back into memory, into heat and shadows and everything we did not bother to regret. Then she winks.
+
+Just once.
+
+So smooth, so perfectly timed, it catches me off guard and hits harder than it should. For a split second, the room blurs again, replaced by silk sheets and breathless sounds and the way her nails dug into my skin.
+
+She knows exactly what she's doing.
+
+And she enjoys every second of it.
+
+My father chokes on his coffee.
+
+Silence slams into the room, thick and stunned. He absolutely did not expect that level of blunt honesty from his new daughter-in-law. Vivienne, meanwhile, goes right back to what she was doing, calm, unbothered, not a hint of embarrassment in her posture. I catch a glimpse of something else in her expression.
+
+Pride.
+
+But the facts don't change.
+
+Neither of us did it.
+
+Which means only one thing.
+
+Someone is framing us.
+
+And worse, they're doing it loudly. Publicly. With flair.
+
+Someone just declared war in our names.
+
+---
+
+**What do you do next?**
 
 ---
 
