@@ -1,6 +1,70 @@
 # CARNAGE WEDDING
 **A Mafia Dark Romance**
 
+# Table of Contents
+
+- [Prologue: Before the Vows](#prologue-before-the-vows)
+- [Chapter 1: The Blood Wedding](#chapter-1-the-blood-wedding)
+- [Chapter 2: The Honeymoon](#chapter-2-the-honeymoon)
+- [Chapter 3: The Morning After](#chapter-3-the-morning-after)
+- [Chapter 4: The Betrayal](#chapter-4-the-betrayal)
+- [Chapter 5: The Silent Court](#chapter-5-the-silent-court)
+
+---
+
+## CHARACTER PROFILES
+
+### **DANTE MORELLI**
+**Age:** 29  
+**Role:** Heir to the Morelli crime family (Italian mob)  
+**Appearance:** Red hair, pale blue eyes, devastatingly beautiful in a way that unsettles people  
+**Personality:** Controlled chaos. Sadistic when necessary, strategic always. High-functioning psychopath with narcissistic tendencies. Thrives on power, violence, and control.  
+**Skills:** Torture, intimidation, tactical planning, marksmanship  
+**Weakness:** Boredom. He needs stimulation, challenge, chaos. Without it, he becomes destructive.  
+**What He Wants:** To prove he's worthy of leading the family. To find something—or someone—that doesn't bore him.  
+**What He Fears:** Nothing, consciously. Subconsciously? Being ordinary.
+
+### **VIVIENNE "VIPER" ROSTOVA**
+**Age:** 26  
+**Role:** Daughter of Viktor Rostov (Russian Bratva boss), trained assassin  
+**Appearance:** Dark hair, pale skin, sharp features, beautiful in a way that feels dangerous  
+**Personality:** Clinical psychopath. Zero empathy, zero fear, zero attachment. Brilliant, calculating, and profoundly bored with life. Uses beauty as a weapon.  
+**Skills:** Assassination, seduction, interrogation, languages (fluent in Russian, English, Italian, French), hand-to-hand combat  
+**Weakness:** Emotional emptiness. She's incapable of forming genuine bonds, which isolates her even among killers.  
+**What She Wants:** To feel something. Anything. To find someone who won't break, won't bore her, won't be easy.  
+**What She Fears:** Nothing, genuinely. She's incapable of fear in the traditional sense.
+
+---
+
+## THE WORLD
+
+**Setting:** New York City, present day  
+**Power Structure:**
+- **Morelli Family (Italian Mob):** Controls trafficking, loan sharking, protection rackets, legitimate businesses (restaurants, construction)
+- **Rostov Bratva (Russian Mob):** Controls arms dealing, human trafficking, cybercrime, money laundering
+
+**The War:** The two families have been killing each other for a decade over territorial disputes. Both are weakened. Both are bleeding resources. The marriage is a truce, but truces in this world are fragile things, held together by self-interest and the threat of mutually assured destruction.
+
+**The Stakes:** If the marriage fails, the war resumes. If either family shows weakness, rival factions (Calabrese, Yakuza, Triads) will move in. Both Dante and Vivienne understand this. Neither particularly cares. They're more interested in each other.
+
+---
+
+## THEMES
+
+- **Violence as intimacy:** For Dante and Vivienne, violence isn't just a tool—it's a language, a form of connection
+- **Toxicity as compatibility:** They're not good for each other. They're perfect for each other. There's a difference.
+- **Power dynamics:** Constant struggle for control, neither willing to submit, both thriving in the push-and-pull
+- **The void:** What happens when two people incapable of love find the only person who understands that emptiness?
+
+---
+
+## TONE & STYLE
+
+**Narrative Voice:** Second person (You are Dante) for immersion and complicity  
+**Prose Style:** Sharp, visceral, unflinching. No romanticizing the violence. No apologizing for the characters.  
+**Pacing:** Slow burn tension punctuated by explosive moments (literal and metaphorical)  
+**Content Warnings:** Extreme violence, murder, morally bankrupt protagonists, toxic relationship dynamics, sexual content, psychological manipulation
+
 ---
 
 *Two psychopaths walk down the aisle.*  
@@ -346,61 +410,6 @@ It isn’t going to be that.
 It’s going to be far worse.
 
 And far, far better.
-
----
-
-## CHARACTER PROFILES
-
-### **DANTE MORELLI**
-**Age:** 29  
-**Role:** Heir to the Morelli crime family (Italian mob)  
-**Appearance:** Red hair, pale blue eyes, devastatingly beautiful in a way that unsettles people  
-**Personality:** Controlled chaos. Sadistic when necessary, strategic always. High-functioning psychopath with narcissistic tendencies. Thrives on power, violence, and control.  
-**Skills:** Torture, intimidation, tactical planning, marksmanship  
-**Weakness:** Boredom. He needs stimulation, challenge, chaos. Without it, he becomes destructive.  
-**What He Wants:** To prove he's worthy of leading the family. To find something—or someone—that doesn't bore him.  
-**What He Fears:** Nothing, consciously. Subconsciously? Being ordinary.
-
-### **VIVIENNE "VIPER" ROSTOVA**
-**Age:** 26  
-**Role:** Daughter of Viktor Rostov (Russian Bratva boss), trained assassin  
-**Appearance:** Dark hair, pale skin, sharp features, beautiful in a way that feels dangerous  
-**Personality:** Clinical psychopath. Zero empathy, zero fear, zero attachment. Brilliant, calculating, and profoundly bored with life. Uses beauty as a weapon.  
-**Skills:** Assassination, seduction, interrogation, languages (fluent in Russian, English, Italian, French), hand-to-hand combat  
-**Weakness:** Emotional emptiness. She's incapable of forming genuine bonds, which isolates her even among killers.  
-**What She Wants:** To feel something. Anything. To find someone who won't break, won't bore her, won't be easy.  
-**What She Fears:** Nothing, genuinely. She's incapable of fear in the traditional sense.
-
----
-
-## THE WORLD
-
-**Setting:** New York City, present day  
-**Power Structure:**
-- **Morelli Family (Italian Mob):** Controls trafficking, loan sharking, protection rackets, legitimate businesses (restaurants, construction)
-- **Rostov Bratva (Russian Mob):** Controls arms dealing, human trafficking, cybercrime, money laundering
-
-**The War:** The two families have been killing each other for a decade over territorial disputes. Both are weakened. Both are bleeding resources. The marriage is a truce, but truces in this world are fragile things, held together by self-interest and the threat of mutually assured destruction.
-
-**The Stakes:** If the marriage fails, the war resumes. If either family shows weakness, rival factions (Calabrese, Yakuza, Triads) will move in. Both Dante and Vivienne understand this. Neither particularly cares. They're more interested in each other.
-
----
-
-## THEMES
-
-- **Violence as intimacy:** For Dante and Vivienne, violence isn't just a tool—it's a language, a form of connection
-- **Toxicity as compatibility:** They're not good for each other. They're perfect for each other. There's a difference.
-- **Power dynamics:** Constant struggle for control, neither willing to submit, both thriving in the push-and-pull
-- **The void:** What happens when two people incapable of love find the only person who understands that emptiness?
-
----
-
-## TONE & STYLE
-
-**Narrative Voice:** Second person (You are Dante) for immersion and complicity  
-**Prose Style:** Sharp, visceral, unflinching. No romanticizing the violence. No apologizing for the characters.  
-**Pacing:** Slow burn tension punctuated by explosive moments (literal and metaphorical)  
-**Content Warnings:** Extreme violence, murder, morally bankrupt protagonists, toxic relationship dynamics, sexual content, psychological manipulation
 
 ---
 
