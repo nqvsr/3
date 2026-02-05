@@ -3818,3 +3818,484 @@ It''s absolutely insane.
 
 And by the end, both patriarchs are smiling.
 
+
+
+---
+
+### VIVIENNE
+
+**"You want us to be bait,"** my father says when we finish. Not accusatory. Appreciative.
+
+**"We want you to be survivors,"** I correct. **"The bait is just the method."**
+
+**"Twenty operatives,"** Lorenzo muses. **"Against what? Ten of us?"**
+
+**"Twelve if you include us,"** Dante says.
+
+**"Fourteen if you include me and Sera,"** I add.
+
+**"A fifteen-year-old child?"** Dmitri asks skeptically.
+
+**"A fifteen-year-old child who tortured Viktor Sokolov for three hours, extracted every piece of intelligence he had, and killed him so efficiently that forensics won't be able to identify the body,"** Dante says flatly. **"She's more than qualified."**
+
+My father looks at Sera properly for the first time. Really sees her.
+
+She stares back. Unflinching. A predator recognizing another predator.
+
+**"I like her,"** Dmitri decides.
+
+**"Everyone does,"** I mutter.
+
+**"The evidence,"** Lorenzo says, bringing us back on track. **"The planted weapons. The financial trails. How do we counter that?"**
+
+**"We don't,"** Dante says. **"We use it."**
+
+He pulls out another file. Spreads documents across the desk.
+
+**"Every piece of evidence they've planted leads back to us, yes. But evidence can be recontextualized. We make it look like WE discovered the plot. That we were investigating. That we were trying to prevent the assassination."**
+
+**"They're using weapons registered to you?"** Lorenzo asks.
+
+**"So we report them stolen. File police reports. Create a paper trail showing we discovered the theft weeks ago."**
+
+**"The financial records?"**
+
+**"We reverse-engineer them. Show that we were tracking Calabrese payments. Building a case."**
+
+**"They'll claim you're lying,"** Dmitri points out.
+
+**"They can claim whatever they want,"** I say. **"Dead men can't testify."**
+
+The room goes quiet.
+
+**"You're planning to kill them all,"** my father says. Not a question. A realization.
+
+**"Every single operative,"** I confirm. **"Every Calabrese soldier. Everyone the Court sends. We turn the dinner into a massacre. Their massacre. Not ours."**
+
+**"And the Silent Court?"** Lorenzo asks. **"You think they'll just accept that? Let it go?"**
+
+**"No,"** Dante says. **"Which is why we're not stopping at the dinner."**
+
+He pulls out one more file. This one thicker. Heavier.
+
+**"Viktor gave us everything. Names. Accounts. Operations. But more importantly—he gave us leverage. Evidence of the Court's involvement in sixteen different federal crimes. Recordings of Calloway ordering assassinations. Financial records tying him to drug trafficking, weapons smuggling, human trafficking."**
+
+**"Mutually assured destruction,"** I add. **"We survive tomorrow. Then we approach the Court. Not as victims. As equals. We tell them: Leave us alone, or we release everything. Destroy your entire operation. Burn it all down."**
+
+**"They'll kill you,"** Dmitri says.
+
+**"They'll try,"** I correct. **"But we'll have dead man's switches. Multiple copies of the evidence with trusted parties. Instructions to release everything if anything happens to us."**
+
+**"You're declaring war on the most powerful criminal organization in the country,"** Lorenzo says. **"That's suicide."**
+
+**"No,"** Dante counters. **"We're negotiating from a position of strength. They want control. We're offering them a choice: control without us, or chaos if they push."**
+
+**"And you think they'll choose control?"**
+
+**"They're criminals,"** I say. **"But they're businessmen first. They'll make the rational choice."**
+
+Silence again.
+
+Longer this time.
+
+Lorenzo and Dmitri look at each other. Another one of those weighted looks. Decades of history. Trust built through blood and violence.
+
+Finally, my father speaks.
+
+**"This is insane."**
+
+**"Yes,"** I agree.
+
+**"We could all die tomorrow."**
+
+**"Yes."**
+
+**"The Court could decide to make an example of us regardless."**
+
+**"Yes."**
+
+He smiles. Slow. Dangerous. The same smile I see in the mirror.
+
+**"I'm in."**
+
+Lorenzo laughs. **"Of course you are, you crazy Russian bastard."** He looks at Dante. At me. **"You're my son. And you're my daughter-in-law now. If you're going to war, we go together."**
+
+**"Family,"** Dmitri agrees, raising his glass.
+
+**"Family,"** we echo.
+
+We drink.
+
+And in that moment, the alliance becomes something more.
+
+Not just a strategy.
+
+Not just a marriage of convenience.
+
+But an actual, honest-to-god family.
+
+Broken. Bloodstained. Psychopathic.
+
+But ours.
+
+---
+
+### DANTE
+
+We spend the next six hours planning.
+
+Not just tactics. Logistics. Every detail. Every contingency. Every backup plan and fallback position.
+
+We identify our twelve trusted people. Verify their loyalty personally. Bring them in one at a time. Brief them individually. Give each person one piece of the puzzle so no one except the four of us knows the complete picture.
+
+Paranoid?
+
+Absolutely.
+
+Necessary?
+
+Without question.
+
+By afternoon, we have something that resembles a plan. Not perfect. Too many variables. Too much that could go wrong.
+
+But workable.
+
+Maybe.
+
+**"The photographer,"** Vivienne says as we're wrapping up. **"The one who's been watching us. He's still out there."**
+
+**"Viktor said he stays close to his subjects,"** I recall.
+
+**"Within a mile of our house."**
+
+**"We should find him,"** Sera suggests. **"Before tomorrow. Eliminate the variable."**
+
+**"Agreed,"** I say. **"But how? We don't know what he looks like. Don't know where specifically he's set up."**
+
+**"We draw him out,"** Vivienne says. She's got that look. The one that means she's three steps ahead and enjoying it.
+
+**"How?"**
+
+**"We give him something to photograph. Something he can't resist. Something that makes him expose his position."**
+
+I catch on immediately. **"We stage a fight."**
+
+**"Exactly. Outside. Visible. Loud enough that he thinks he's witnessing a breakdown in the alliance. He'll move in closer. Try to capture it. Document the 'proof' that we're falling apart."**
+
+**"And when he does—"** Sera starts.
+
+**"We triangulate his position and put him down,"** Vivienne finishes.
+
+**"I like it,"** Lorenzo says. **"Simple. Direct. Violent."**
+
+**"When?"** Dmitri asks.
+
+**"Tonight,"** I say. **"After dark. Give him the cover of darkness to feel safe."**
+
+**"And if he doesn't take the bait?"**
+
+**"Then tomorrow gets more complicated,"** Vivienne admits. **"But he will. He's been following us for months. He's invested. He'll want the money shot."**
+
+We finalize the details.
+
+By sunset, we're ready.
+
+Ready as we'll ever be, anyway.
+
+---
+
+### VIVIENNE
+
+9:47 PM.
+
+Dante and I stand in the driveway of our estate. Spotlights illuminating us. Positioned perfectly to be visible from multiple angles.
+
+Sera is hidden on the roof with a thermal scope, scanning for heat signatures within a one-mile radius.
+
+Four of our most trusted people are positioned at cardinal points, ready to move the moment we have a location.
+
+Now we just need to sell it.
+
+**"You sure about this?"** Dante asks quietly.
+
+**"Not even a little bit,"** I admit.
+
+**"Good. Me neither."**
+
+He takes a breath. Then his entire demeanor changes.
+
+Gone is the careful control. The measured responses. The strategic calm.
+
+In its place: rage.
+
+**"I don't care what your father says!"** he shouts, loud enough to carry. **"Viktor was YOUR second-in-command! YOUR responsibility! And he sold us out!"**
+
+**"Don't you dare—"** I yell back, matching his volume. **"Don't you DARE blame this on me! He passed every security check! Every verification!"**
+
+**"Then your security is shit!"**
+
+**"MY security kept YOU alive at the cathedral!"**
+
+**"Barely!"**
+
+We're circling each other now. Body language aggressive. Hostile. Every inch the picture of a marriage falling apart under pressure.
+
+**"Maybe this was a mistake,"** I spit. **"This alliance. This marriage. All of it."**
+
+**"First smart thing you've said all day."**
+
+**"Fuck you, Dante."**
+
+**"You already did. Didn't solve anything."**
+
+Low blow.
+
+I let fury flash across my face. Real fury, even though it's not directed at him. Channel it. Use it.
+
+**"I'm calling my father,"** I announce. **"This is over."**
+
+**"Do it,"** he challenges. **"See if I care."**
+
+I turn my back on him. Pull out my phone.
+
+And that's when I hear it.
+
+The softest sound. Barely perceptible.
+
+A camera shutter. Professional. Expensive. With a silencer to muffle the mechanical click.
+
+But not silent enough.
+
+Northwest. Maybe two hundred yards. Elevated position.
+
+Sera's voice comes through the earpiece we're both wearing. **"Got him. Northwest. Bell tower of the abandoned church. Second floor. Single heat signature. He's moving. Repositioning for a better angle."**
+
+**"Converge,"** Dante says quietly into his own mic. **"Non-lethal if possible. We want him alive."**
+
+Our four people move. Silent. Trained. Deadly.
+
+Dante and I continue the charade for another thirty seconds. Just long enough.
+
+Then we hear it.
+
+A crash. A struggle. A single gunshot—ours, not his.
+
+**"Target secured,"** one of our people reports. **"He's alive. Unconscious. We're bringing him in."**
+
+I let the tension drain from my shoulders. Turn to Dante.
+
+**"Think he got good shots?"** I ask conversationally.
+
+**"I hope so. I really sold that 'fuck you' line."**
+
+**"You really did. Very convincing."**
+
+**"I've been practicing."**
+
+**"It shows."**
+
+We head back inside.
+
+Fifteen minutes later, they bring him in.
+
+Mid-thirties. Unremarkable. The kind of face you'd forget two seconds after seeing it. Professional photographer's gear. Top of the line. Expensive.
+
+And in his bag: a camera with a telephoto lens, a laptop with thousands of photos of us, and an encrypted phone with a single contact labeled "Benefactor."
+
+**"Well well well,"** Sera says, crouching in front of him as he regains consciousness. **"What do we have here?"**
+
+The photographer's eyes open. He sees us all surrounding him. Realizes his situation.
+
+And immediately tries to swallow something.
+
+Dante moves faster. Grabs his jaw. Forces it open. Extracts a false tooth.
+
+Cyanide capsule.
+
+**"No no no,"** Dante says almost gently. **"You don't get the easy way out. We need to talk first."**
+
+**"I won't tell you anything,"** the man says.
+
+**"That's what they all say,"** Sera replies cheerfully. **"Right before they tell us everything."**
+
+She's right.
+
+They always do.
+
+---
+
+### DANTE
+
+His name is Marcus Webb. Freelance intelligence operative. Formerly CIA. Dishonorably discharged for selling classified information.
+
+Now he sells his services to whoever pays.
+
+In this case: the Silent Court.
+
+It takes Sera twenty minutes to break him.
+
+She's efficient. Clinical. Terrifying in how calmly she escalates.
+
+By the end, we have everything.
+
+**"I was hired six months ago,"** Marcus gasps. **"Before the engagement was even announced. They knew the marriage was coming. Wanted documentation. Evidence. Blackmail material."**
+
+**"Who hired you?"** Vivienne asks.
+
+**"I don't know. Everything was through intermediaries. Encrypted messages. Dead drops for payment."**
+
+**"The contact in your phone,"** I press. **"'Benefactor.' Who is it?"**
+
+**"I don't know! I've never met them! Never heard their voice! Just text messages!"**
+
+**"What were your instructions?"** Vivienne asks.
+
+**"Document everything. Every meeting. Every movement. Create a comprehensive file. Focus on anything that could drive a wedge between the families."**
+
+**"Like the photo of Vivienne and the Calabrese lieutenant."**
+
+**"Yes. That was gold. Perfect angle. Perfect context. Without audio, it looks exactly like a secret meeting."**
+
+**"How many copies?"** I ask.
+
+**"Three. One on my laptop. One uploaded to a secure server. One delivered to my contact."**
+
+**"Where's the server?"**
+
+**"Cloud storage. Encrypted. I can give you the access codes."**
+
+**"And your contact? How do you reach them?"**
+
+**"I don't. They reach me. Only when they want something."**
+
+Dead end.
+
+For now.
+
+**"What else did they want documented?"** Vivienne asks.
+
+Marcus hesitates.
+
+Sera tightens her grip on the pliers she's holding.
+
+**"Everything!"** he shouts. **"Your routines. Your security. Your relationships. They wanted to know every possible weakness. Every point of leverage."**
+
+**"Did they ever mention what they planned to do with it?"**
+
+**"No. Just that it was important. That you two were 'high value targets.' That the Court wanted complete information."**
+
+**"The Court,"** I repeat. **"You've heard of them."**
+
+**"Everyone's heard of them. You don't work in this world without knowing the Court exists. But I've never worked for them directly before. This was my first contract."**
+
+**"And your last,"** Vivienne says quietly.
+
+Marcus goes pale. **"I gave you everything. Everything I know. You said—"**
+
+**"We said we needed information,"** I correct. **"We got it. Thank you."**
+
+**"Please—"**
+
+**"You photographed my wife,"** I tell him. **"In our bedroom. In private moments. You violated something sacred. You really think you're walking away from that?"**
+
+**"I was just doing my job!"**
+
+**"And now we're doing ours."**
+
+Sera doesn't make it quick.
+
+But she makes it quiet.
+
+And when it's done, we have his laptop, his phone, his camera, and access to all his files.
+
+Everything the Silent Court wanted to use against us.
+
+Now ours.
+
+**"Upload everything to our secure server,"** I tell one of our tech people. **"Then wipe his devices. Destroy the hardware. I want zero trace."**
+
+**"And his body?"** they ask.
+
+**"Gone. Completely. Like he never existed."**
+
+They nod and get to work.
+
+Vivienne and I step outside. The night air is cold. Clean. A relief after the basement.
+
+**"One less variable,"** she observes.
+
+**"One less threat."**
+
+**"Tomorrow's still going to be chaos."**
+
+**"Controlled chaos."**
+
+**"Is there really such a thing?"**
+
+**"We're about to find out."**
+
+She leans against me. Just for a moment. Letting herself be tired. Letting herself be human.
+
+**"Dante?"**
+
+**"Mm?"**
+
+**"If this goes wrong tomorrow—"**
+
+**"It won't."**
+
+**"But if it does. If one of us doesn't—"** She stops. Tries again. **"I just want you to know. These three days. This insane, bloodstained, violent three days. They've been the best of my life."**
+
+I turn to face her. Cup her face in my hands.
+
+**"Mine too,"** I tell her. **"And tomorrow won't be the end. It'll be the beginning. We're going to survive. Together. And then we're going to build something that makes the Silent Court look like amateurs."**
+
+She smiles. Real. Genuine. Beautiful.
+
+**"Promise?"**
+
+**"Promise."**
+
+We kiss. Long. Deep. Full of everything we can't say out loud.
+
+When we pull apart, Sera is standing in the doorway, watching with that clinical fascination she has.
+
+**"You two are disgustingly romantic,"** she observes. **"For psychopaths."**
+
+**"Thank you,"** Vivienne and I say in unison.
+
+Sera grins. **"Tomorrow should be fun."**
+
+**"Fun,"** I echo. **"That's one word for it."**
+
+**"What's another?"**
+
+**"Apocalyptic."**
+
+**"Even better."**
+
+We head back inside.
+
+Tomorrow is the dinner.
+
+Tomorrow is the trap.
+
+Tomorrow, we either win everything.
+
+Or lose it all.
+
+No middle ground.
+
+No compromise.
+
+Just blood.
+
+And victory.
+
+Or death.
+
+---
+
+**TO BE CONTINUED...**
+
+## NEXT: THE DINNER MASSACRE
