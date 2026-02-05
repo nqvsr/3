@@ -2243,15 +2243,17 @@ But I'm smiling too.
 
 I cook.
 
-It's strange. Domestic. Surreal.
+It’s strange. Domestic. Almost surreal in how wrong it feels.
 
-Twenty-four hours ago, I killed twenty-two people at my own wedding.
+Twenty-four hours ago, my husband and I slaughtered twenty-two people at our own wedding. Blood on marble. Screams echoing through silk and crystal. A celebration turned massacre without missing a beat.
 
-Now I'm making scrambled eggs for a teenage assassin who just gifted us a severed head.
+Now I’m standing at the stove, quietly scrambling eggs for a teenage assassin who showed up hours earlier with a severed head like a housewarming gift.
 
-Life is weird.
+Life has a warped sense of humor.
 
-Sera watches me work, studying my movements with the same intensity she probably used to study our kill patterns. Learning. Cataloging. Absorbing.
+Sera leans against the counter, watching me work. Not casually. Not politely. She studies my movements with focus sharp enough to cut glass, the same intensity she probably used to memorize escape routes and kill patterns. Every flick of the wrist. Every pause. Learning. Cataloging. Absorbing.
+
+As if even this, too, is a weapon she intends to master.
 
 **"You're left-handed,"** she observes. **"But you shoot right-handed. Why?"**
 
@@ -2263,11 +2265,11 @@ Dante leans against the counter, scrolling through the contents of the USB drive
 
 **"She's not lying,"** he says quietly. **"Claudia's financials are exactly where Sera said they'd be. Three million in offshore accounts. Email trails. Meeting logs."** He looks up, and there's murder in his eyes. **"She's been feeding the Calabrese family our intel since before the engagement was even announced."**
 
-Fury coils in my chest, cold and surgical.
+Fury coils in my chest, cold and precise, tightening with the patience of something that knows it will be used.
 
 Claudia.
 
-I met her twice. She seemed competent. Professional. Trustworthy.
+I met her twice. She’d seemed competent. Professional. The kind of woman who understood her place and kept it without complaint. Trustworthy, at least by the standards of our world.
 
 Apparently, I was wrong.
 
@@ -2275,9 +2277,11 @@ Apparently, I was wrong.
 
 **"Personally,"** Dante says. **"Tonight. After we've extracted everything she knows."**
 
-He doesn't need to elaborate. I understand perfectly.
+He doesn’t need to elaborate.
 
-Claudia won't die quickly.
+I understand perfectly.
+
+Claudia won’t die quickly.
 
 **"There's more,"** he continues, scrolling further. **"The Calabrese family has been planning this for months. The cathedral attack wasn't improvised—it was phase one of a three-phase operation."**
 
@@ -2297,11 +2301,11 @@ I set down the spatula, appetite gone.
 
 The family dinner.
 
-The one where we're supposed to publicly demonstrate unity between the Morelli and Rostov families. Where both our fathers will be in the same room, surrounded by dozens of people, any one of whom could be compromised.
+The one meant to publicly display unity between the Morelli and Rostov families. A carefully staged performance of loyalty and peace. Both our fathers seated in the same room, surrounded by dozens of people, any one of them compromised, bought, or already dead and just waiting to fall.
 
-It's the perfect setup for an assassination.
+It’s the perfect setup for an assassination.
 
-And we almost walked right into it.
+And we almost walked straight into it.
 
 **"We need to cancel,"** I say.
 
@@ -2516,23 +2520,25 @@ We don't care.
 
 Three hours later, we have everything.
 
-Names. Locations. Plans. Contingencies.
+Names. Locations. Plans. Contingencies layered on top of contingencies. The full architecture of betrayal laid bare.
 
-Claudia talked. Begged. Pleaded.
+Claudia talked.
+
+She begged. She pleaded. She promised anything she thought might buy her another breath.
 
 None of it mattered.
 
-Traitors don't get second chances.
+Traitors don’t get second chances.
 
-When we're done, Vivienne makes it quick. Professional. Clean.
+When it’s over, Vivienne handles the end. Quick. Professional. Clean in the way only she can make death look inevitable.
 
-One shot. Silenced. Final.
+One shot. Silenced. Absolute.
 
-Claudia Moretti, head of Morelli intelligence operations and Calabrese informant, is gone.
+Claudia Moretti, head of Morelli intelligence operations and Calabrese informant, ceases to exist.
 
-We burn the body. Dispose of the evidence. Erase every trace of her existence.
+We burn the body. Reduce flesh and bone to ash. Dispose of what remains. Scrub every digital and physical trace until even memory feels unreliable.
 
-By midnight, it's like she never existed at all.
+By midnight, it’s as if she was never born at all.
 
 ---
 
@@ -2556,87 +2562,1259 @@ And somehow, I believe her.
 
 Tomorrow, we spring the trap.
 
-Tomorrow, we end this war before it can truly begin.
+Tomorrow, we end this war before it ever has the chance to become real.
 
-Tomorrow, the Calabrese family learns what happens when you come after the Viper and the Devil.
+Tomorrow, the Calabrese family learns exactly what happens when you come for the Viper and the Devil.
 
 But tonight?
 
-Tonight we rest.
+Tonight, we rest.
 
 Plan.
 
 Prepare.
 
-And somewhere in the darkness, I find myself thinking that maybe—just maybe—this strange, broken, bloodstained family we're building might actually survive.
+And somewhere in the dark, in the quiet between heartbeats, I catch myself thinking that maybe—just maybe—this twisted, broken, bloodstained family we’re building might actually survive.
 
 ---
 
-**What do you do next?**
+### DANTE
+
+I cling to that thought like an anchor, let it steady my pulse. I keep my face composed, my movements deliberate, mirroring the calm my wife wears so effortlessly. Vivienne has already turned away, but she pauses at the bedroom door, fingers resting against the frame. She doesn't look back. She doesn't need to.
+
+The message is clear.
+
+*Don't make me wait.*
+
+I understand.
+
+I take Sera down the corridor, our footsteps soft against the floor. The house feels vast at this hour, stretched thin by silence. I choose a room far from ours, intentionally distant, insulated by walls and space. She's still a child, no matter how much blood she's spilled, and there are boundaries she doesn't need crossed tonight. Some things should remain unheard. Unseen.
+
+I make sure she's settled. The door closes. The lock clicks into place. Safe.
+
+Only then do I turn back.
+
+The walk to our bedroom feels longer now, heavier. The air changes with every step, charged with something darker, more intimate. Behind that door waits Vivienne, patience sharpened into expectation, restraint held by a single thread. Tomorrow belongs to war. To strategy. To bodies falling.
+
+But tonight is claimed by something else entirely.
+
+I open the door and step inside, leaving the rest of the world sealed away behind me.
 
 ---
 
-## 🎯 NEXT CHAPTER OPTIONS - CHOOSE YOUR PATH
+I've already seen every inch of my wife's body. Last night burned that knowledge into memory, stripped away any illusion that there could still be surprises between us. And yet—
 
-### **OPTION 1: THE DINNER TRAP** 🍷💀
-**Tomorrow night. The joint family dinner.**
+She's stretched across the bed, bare, unguarded, the low light tracing the elegant lines of her form like it was made for no other purpose. Nothing covers her. Nothing needs to.
 
-You've replaced security. Planted misinformation. Set every piece of the trap.
+I stop without meaning to. My breath catches, held a second too long, as if my body forgot how to do something as simple as inhale.
 
-But when the Calabrese hitters arrive, something goes wrong. **One of your "verified loyalists" isn't loyal at all.** The trap turns into a bloodbath—but not the one you planned.
+She is still devastating.
 
-Your father takes a bullet meant for you. Vivienne's blade finds a target, but not before Sera—against orders—appears in the middle of the firefight with a sniper rifle and an agenda you didn't authorize.
+Not just beautiful in the obvious way, but composed, deliberate, dangerous even in rest. Curves that promise softness, stillness that hides teeth. A woman who looks like temptation and consequence wrapped into one.
 
-**By the time the smoke clears, you've won the battle but made thirty new enemies.**
+I've seen her kill without hesitation. I've watched blood dry on her hands.
 
-The surviving Calabrese soldiers retreat with a message: **"This isn't over. See you at the funeral."**
+And standing there, in the quiet, with the door closed and the world shut out, all I can think is the same simple, treacherous truth.
 
-Whose funeral are they talking about?
+*She really is beautiful.*
+
+**"Are you going to stand there all night,"** she asks without opening her eyes, **"or are you going to come to bed?"**
+
+**"I'm appreciating the view."**
+
+**"You had the view last night."**
+
+**"It hasn't gotten old yet."**
+
+Her lips curve. Slight. Satisfied.
+
+**"Good answer."**
+
+I move toward her, shedding clothes as I go. Each piece falls where it lands, forgotten before it hits the floor. By the time I reach the bed, there's nothing between us but intention.
+
+The mattress dips as I join her. She shifts, turns toward me, eyes open now, dark and focused. Her hand finds my chest, palm flat against my heartbeat, feeling the rhythm accelerate under her touch.
+
+**"Busy day tomorrow,"** she murmurs.
+
+**"Mm."**
+
+**"We should sleep."**
+
+**"We should."**
+
+Neither of us moves.
+
+Her fingers trace the scar on my ribs, following the old wound with precision, like she's memorizing topography. I catch her wrist, bring her hand to my mouth, press a kiss to her palm.
+
+**"You're distracting me,"** I tell her.
+
+**"That's the idea."**
+
+**"We need rest."**
+
+**"We need this more."**
+
+She's right. She's always right.
+
+I pull her closer, eliminating distance, erasing the space that doesn't belong between us anyway. Her skin is warm, impossibly soft against mine, a contrast that shouldn't work but does. Everything about her is contradictions. Gentle violence. Careful destruction. A killer who makes me feel safe.
+
+**"Dante,"** she whispers against my mouth.
+
+**"Vivienne."**
+
+Her name tastes like danger and promise.
+
+I kiss her. Slow this time. Thorough. Learning her all over again, cataloging responses, memorizing the way she sighs into my mouth when I angle just right, when pressure and gentleness balance perfectly.
+
+Last night was collision. Desperation. Two people discovering they fit.
+
+Tonight is different.
+
+Tonight is confirmation.
+
+Her hands map my body with purpose, retracing paths she found yesterday, finding new ones. She presses against the bullet wound on my shoulder—healed but still tender—and I hiss.
+
+**"Still hurts?"** she asks.
+
+**"Yes."**
+
+She does it again. Deliberately. Then leans down and kisses the same spot, lips soft where her fingers were cruel.
+
+The duality nearly kills me.
+
+I flip us, reversing positions, pinning her beneath me with careful weight. Her hair spreads across the pillow like dark water, wild and beautiful and mine.
+
+**"My turn,"** I say.
+
+**"Make it count."**
+
+I intend to.
+
+I explore her slowly, methodically, learning what makes her gasp versus what makes her moan. The hollow of her throat—kiss, not bite. The curve of her collarbone—bite, definitely. Her ribs, where that old knife scar lives—trace with fingers, then with tongue.
+
+She arches beneath me, body responding before her mind can stop it, and the trust in that—the surrender—hits harder than it should.
+
+**"Dante—"**
+
+**"I've got you."**
+
+**"I know."**
+
+Three words. Simple. Devastating.
+
+She knows. She trusts. She's letting go.
+
+For me.
+
+The realization does something dangerous to my chest, tightens something I didn't know could be tightened. This isn't just physical anymore. It stopped being just physical the moment we chose each other at that altar.
+
+This is something else.
+
+Something I don't have words for.
+
+Something that terrifies me more than any bullet or blade ever could.
+
+I pour everything into touch. Into sensation. Into showing her without words what I can't say out loud. My hands worship scars and softness equally. My mouth traces patterns only she will ever know. I learn her body the way I'd learn a weapon—thoroughly, obsessively, until I could navigate blind.
+
+**"Please,"** she breathes, and the word is permission and demand all at once.
+
+**"Say it again."**
+
+**"Please, Dante. Now."**
+
+I obey.
 
 ---
 
-### **OPTION 2: THE BETRAYAL** 🎭🗡️
-**Sera wakes you at 3 AM.**
+### VIVIENNE
 
-She's covered in blood. Fresh blood. Not hers.
+Time blurs.
+
+Minutes. Hours. Heartbeats strung together until they lose meaning.
+
+There's only sensation. Heat pooling low and insistent. The weight of him, solid and real and *mine*. The way he looks at me like I'm the only thing in the world that matters. Like I'm dangerous and sacred and he can't decide which is more intoxicating.
+
+He moves with purpose. Controlled. Deliberate. Every touch calculated to undo me piece by piece.
+
+And it's working.
+
+I've always been in control. Always. Control is survival. Control is power. Control is the difference between living and dying in our world.
+
+But here, now, with him—
+
+I don't want control.
+
+I want to fall.
+
+And I do.
+
+His name tears from my throat, raw and unguarded, as the world shatters white-hot around me. I cling to him, nails digging crescents into his shoulders, anchoring myself to the only solid thing in a reality that's dissolved into pure sensation.
+
+He follows seconds later, my name on his lips, body taut and trembling, undone in the same way I am.
+
+Perfect.
+
+Devastating.
+
+*Ours.*
+
+---
+
+### DANTE
+
+We lie tangled together afterward, breathing hard, hearts still racing.
+
+Her head rests on my chest. My fingers trace idle patterns on her shoulder, mindless and soothing, something I've never done with anyone else and can't seem to stop doing with her.
+
+**"We really should sleep,"** she murmurs.
+
+**"We should."**
+
+**"Tomorrow's going to be dangerous."**
+
+**"Every day is dangerous."**
+
+**"Fair point."**
+
+Silence settles. Comfortable. Safe.
+
+I press a kiss to the top of her head, breathing in the scent of her—sweat and perfume and something uniquely *her*.
+
+**"Vivienne?"**
+
+**"Mm?"**
+
+**"I—"**
+
+The words stick. I don't know how to finish that sentence. Don't know what I'm trying to say.
+
+*I need you. I trust you. I'm terrified of how much you matter.*
+
+All of it. None of it.
+
+She tilts her head, looks up at me with those sharp, knowing eyes.
+
+**"I know,"** she says softly.
+
+And somehow, that's enough.
+
+I pull her closer. She settles against me, body fitting perfectly into the spaces I didn't know were empty.
+
+We fall asleep like that.
+
+Together.
+
+Tangled.
+
+Safe.
+
+For now.
+
+---
+
+## CHAPTER 4: THE BETRAYAL
+
+### DANTE
+
+There's a soft, irregular sound outside the bedroom. Wood settling. Footsteps where there shouldn't be any.
+
+I wake slowly.
+
+Vivienne is asleep beside me, bare skin warm against the sheets, her breathing steady, unguarded in a way she never allows herself when conscious. I watch her for a moment longer than necessary. Then, carefully, I adjust the blanket, covering her, making sure she's comfortable. A small, almost human gesture.
+
+I pull on my boxers and slip out of the room.
+
+The hallway is dim, quiet.
+
+Sera is already there.
+
+Waiting.
+
+She knew it would be me who stepped out, not Vivienne.
+
+She's covered in blood again.
+
+Fresh. Still wet. Still warm. None of it hers.
 
 **"We have a problem,"** she says.
 
-She leads you to the basement. Inside, you find **Dmitri Rostov's second-in-command—tied to a chair, beaten unconscious, with Calabrese family tattoos freshly carved into his chest.**
+No panic. No urgency. Just a statement of fact.
 
-**"He's been working for them longer than Claudia,"** Sera explains. **"I've been tracking him since I got here. Tonight he tried to send a message to the Calabrese family about tomorrow's trap."**
+She turns and walks, and I follow her down into the basement. The air shifts as we descend, colder, heavier, as if the house itself is aware of what's being kept below. The lights hum overhead. Concrete. Steel. The smell of iron and fear bleeding into everything.
 
-She hands you a phone. Unsent message: **"THEY KNOW. ABORT PHASE 2."**
+In the center of the room sits Dmitri Rostov's second-in-command.
 
-**"I stopped him,"** Sera says. **"But there's more."**
+Tied to a chair. Arms cinched tight. Head slumped forward, unconscious. His face is barely recognizable, swollen and ruined, bruises blooming deep purple and red across bone. Blood streaks his chest where Calabrese family tattoos have been carved directly into his skin, fresh enough to still glisten under the lights.
 
-She shows you a photo on his phone. **It's Vivienne. Meeting with a Calabrese lieutenant. Two weeks before the wedding.**
+Sera stands beside him, composed. Detached.
 
-**"Either your wife is a traitor,"** Sera says carefully, **"or someone is setting her up. Either way, her father is going to think she betrayed the Bratva."**
+**"He's been working for them longer than Claudia,"** she says. **"I've been tracking him since I got here."** She doesn't look at the man. She doesn't need to. **"Tonight he tried to send a message to the Calabrese family about tomorrow's trap."**
 
-**How do you handle this without starting a war between your own families?**
+She hands me his phone.
+
+The screen lights up.
+
+An unsent message, blunt and final.
+
+**THEY KNOW. ABORT PHASE 2.**
+
+**"I stopped him,"** Sera says. Then, quieter. Sharper. **"But there's more."**
+
+She swipes and turns the phone toward me.
+
+A photo fills the screen.
+
+Vivienne.
+
+Standing close to a Calabrese lieutenant. Too close. Two weeks before the wedding. Their bodies angled toward each other, familiar in a way that refuses to be explained away no matter how long I stare at it.
+
+**"Either your wife is a traitor,"** Sera says carefully, choosing each word like it might detonate, **"or someone is setting her up."** A pause. **"Either way, her father is going to believe she betrayed the Bratva."**
+
+Silence settles over the room.
+
+No raised voices. No alarms. Just the slow, suffocating pressure of understanding tightening around my chest.
+
+One wrong move, and this doesn't stay buried in the basement.
+
+It becomes a war.
+
+Between families.
+Between blood.
+
+The question isn't whether someone dies.
+
+It's how many.
+
+I stare at the photo. Study it. Force myself to see past the immediate gut reaction, past the jealousy and rage and betrayal clawing at my ribcage.
+
+Details.
+
+The lighting—late afternoon, natural. The location—looks like a park, neutral territory. Vivienne's posture—tense, not relaxed. The lieutenant's body language—aggressive, leaning in.
+
+This isn't a lover's meeting.
+
+This is a confrontation.
+
+**"When exactly was this taken?"** I ask.
+
+Sera checks the metadata. **"Fifteen days before the wedding. 4:47 PM."**
+
+I do the math.
+
+The timing clicks into place with a sick, precise certainty.
+
+It was the same day Vivienne’s extraction team was ambushed in Brooklyn. Three of her people died that night. Experienced. Loyal. Gone. She came home furious, drenched in blood that wasn’t hers, violence still clinging to her like a second skin.
+
+After that, she locked herself inside her father’s study for six hours.
+
+No witnesses. No explanations.
+
+At least, that’s what my intelligence reports say.
+
+This photo was taken hours before that ambush.
+
+**"She was investigating,"** I say slowly. **"Someone tipped off the Calabrese family about her team's location. She was hunting for the leak."**
+
+**"Or,"** Sera counters, **"she IS the leak, and this was her getting paid."**
+
+**"No."**
+
+The certainty in my voice surprises even me.
+
+**"You're sure?"** Sera asks.
+
+Am I?
+
+I've known Vivienne for barely two days as my wife. Known her for months before that as an enemy, a rival, a dangerous unknown.
+
+But last night—tonight—the way she looked at me, the way she trusted me, the way she *chose* me—
+
+That wasn't a lie.
+
+I know what lying looks like. I've built a career on recognizing deception.
+
+And Vivienne wasn't lying.
+
+**"I'm sure,"** I say. **"This is a setup. Someone's trying to drive a wedge between our families. Between us."**
+
+**"Then we need proof,"** Sera says. **"Real proof. Before her father sees this photo."**
+
+She's right.
+
+If Dmitri sees this without context, without explanation, he'll assume the worst. He'll think his daughter betrayed the Bratva. And then—
+
+War.
+
+Internal. Bloody. The kind that destroys families from the inside out.
+
+**"Wake him up,"** I tell Sera, gesturing at the unconscious man. **"I need to know everything. Who he's working for, who else is compromised, and who the fuck took this photo."**
+
+Sera nods and moves toward a table I deliberately don't look at too closely. Metal instruments. Chemical bottles. Tools designed for one purpose: extracting truth from people who don't want to give it.
+
+**"Should I get Vivienne?"** she asks.
+
+I hesitate.
+
+Does Vivienne have an explanation?
+
+Or is this something else entirely?
+
+I know where her loyalty lies. It's in her blood. In her family. In the world that shaped her. But loyalty to *me*?
+
+We've been married for two nights.
+
+Was it real? Or just another calculated role she plays flawlessly?
+
+The doubt tastes like poison.
+
+I hate it.
+
+But I can't ignore it.
+
+**"Not yet,"** I say. **"Let me handle this first. Get him talking. Find out what he knows."**
+
+**"And if he confirms she's a traitor?"**
+
+I meet Sera's eyes. Cold. Absolute.
+
+**"He won't,"** I say. **"Because she's not."**
+
+Sera studies me for a long moment. Then nods.
+
+**"Okay. I believe you."**
+
+**"Why?"**
+
+**"Because you're either right, or you're about to do something incredibly stupid for love."** She picks up a syringe filled with something clear and vicious. **"Either way, it'll be interesting to watch."**
+
+She's insane.
+
+And she's probably right.
+
+She approaches the bound man, taps the syringe, and injects it directly into his neck. He jerks awake with a strangled gasp, eyes wild, disoriented, pain flooding his system as consciousness returns with brutal efficiency.
+
+**"Good morning,"** Sera says pleasantly. **"Let's talk about who you work for."**
 
 ---
 
-### **OPTION 3: THE SILENT COURT** 👁️‍🗨️💎
-**A courier arrives at dawn. No name. No warning.**
+### DANTE
 
-Inside the package: **A black envelope with a wax seal—a crown of thorns.**
+The man's eyes snap open, wild and unfocused, trying to orient himself through the haze of pain and whatever chemical cocktail Sera just pumped into his veins. His name is Viktor Sokolov. Dmitri's second-in-command for the last eight years. A man I've sat across from at negotiation tables, shared whiskey with, trusted with strategic intelligence.
 
-Vivienne recognizes it immediately. **"The Silent Court."**
+A man who's been selling us out to the Calabreses the entire time.
 
-The letter reads:
+Rage coils in my gut, cold and patient. I let it settle. I'll need it later.
 
-*"Mr. and Mrs. Morelli, Congratulations on your marriage and your recent... acquisitions. We've been watching with great interest. Consider Marco Calabrese's death a test—one you passed beautifully. We are prepared to offer you membership in the Court. Power beyond your families. Resources beyond your imagination. Protection from all enemies. In exchange, you complete three tasks for us. The first: Assassinate Senator Richard Calloway within 72 hours. No traces. No connections. The second and third tasks will be revealed upon completion. Refuse, and we will ensure your war with the Calabrese family never ends. Accept, and we will make you gods. You have 24 hours to decide. —The Court"*
+Viktor's gaze lands on me, and recognition flickers through the pain. Fear follows immediately after.
 
-Sera reads over your shoulder.
+Good.
 
-**"Holy shit,"** she breathes. **"The Silent Court is real?"**
+**"Dante,"** he rasps. **"This is... this isn't what it looks like—"**
 
-Vivienne looks pale. **"This is bigger than mob wars. This is... this changes everything."**
+**"It looks like you're tied to a chair in my basement with Calabrese tattoos carved into your chest,"** I say evenly. **"What exactly should it look like?"**
 
-**Do you accept their offer and enter a game far more dangerous than anything you've faced? Or do you refuse and fight a war on two fronts?**
+His mouth works. No sound comes out.
+
+Sera moves behind him, silent as smoke, and produces a pair of pliers from the table. She doesn't threaten. Doesn't speak. Just lets him see the tool, lets his imagination fill in the blanks.
+
+**"I didn't have a choice,"** Viktor says, words tumbling out fast and desperate. **"They have my daughter. They took her three years ago. Said if I didn't cooperate, they'd send her back to me in pieces."**
+
+**"Your daughter died in a car accident,"** I counter. **"Five years ago. I was at the funeral."**
+
+His face crumples.
+
+**"Try again,"** Sera suggests, and her tone is almost kind. Almost.
+
+**"How much did they pay you?"** I ask.
+
+Silence.
+
+Sera doesn't wait. She grabs his left hand, pins it flat against the armrest, and positions the pliers around his pinky finger.
+
+**"Wait! Wait—"** Viktor's voice cracks. **"Five million. Over three years. It started small. Just information. Meeting locations. Personnel movements. Then they wanted more."**
+
+**"The photo,"** I say. **"Of Vivienne meeting with the Calabrese lieutenant. Who took it?"**
+
+**"I don't know his name. They sent someone. Professional. He's been shadowing both families for months."**
+
+**"Why?"**
+
+**"To build leverage. To create chaos. To—"** He stops, realizes he's said too much.
+
+**"To what?"** Sera prompts, applying gentle pressure. Not enough to break. Not yet. Just enough to promise.
+
+**"To destroy the alliance,"** Viktor gasps. **"They want you and Vivienne to turn on each other. Want the families at war. Want everything to collapse from the inside."**
+
+I process this. It tracks. The cathedral attack was too coordinated. Too well-informed. And now this—evidence designed to make me doubt my wife, to fracture the one thing holding this fragile peace together.
+
+**"Who's running the operation?"** I ask.
+
+**"I don't know. I swear. I only ever dealt with intermediaries. They're careful. Paranoid. No paper trails. No direct contact."**
+
+**"The photo,"** I press. **"What's the context? What was Vivienne actually doing?"**
+
+Viktor hesitates.
+
+Sera twists the pliers. Just a fraction.
+
+He screams.
+
+**"She was investigating!"** he shouts. **"She suspected a leak after Brooklyn. She tracked the lieutenant to that park. Confronted him. Threatened him."** A breath. Ragged. **"The Calabreses killed him two days later. Made it look like a mugging. They couldn't risk her finding out more."**
+
+Relief floods through me, sharp and immediate.
+
+I was right.
+
+Vivienne wasn't betraying anyone. She was hunting the betrayal.
+
+And someone photographed it, saved it, weaponized it to be used exactly like this.
+
+**"Who else knows about this photo?"** I ask.
+
+**"Just me. And the photographer. They wanted me to leak it to Dmitri tomorrow. After the dinner. After the trap was sprung. Maximum chaos."**
+
+**"Where's the photographer now?"**
+
+**"I don't know. They move him around. Different locations. Different identities."**
+
+I study Viktor. Broken. Desperate. Useful.
+
+And completely expendable.
+
+**"One more question,"** I say quietly. **"Did you know about the cathedral attack beforehand?"**
+
+His silence is answer enough.
+
+**"How many?"** Sera asks, voice soft as silk. **"How many people died because you sold us out?"**
+
+**"I didn't want—"**
+
+**"HOW MANY?"**
+
+**"Forty-three,"** he whispers. **"Over three years. Forty-three operations compromised. Forty-three people dead because of information I gave them."**
+
+The number hangs in the air like smoke.
+
+Forty-three lives.
+
+Forty-three families destroyed.
+
+All for five million dollars and a loyalty that never existed.
+
+I should feel rage. Fury. The urge to make him suffer the way those forty-three people suffered.
+
+But all I feel is cold. Clinical. Final.
+
+**"Sera,"** I say. **"Get everything he knows. Names. Accounts. Contact protocols. Every detail."**
+
+**"And then?"**
+
+**"And then make it clean. He doesn't suffer. He just stops."**
+
+Viktor's eyes go wide. **"Dante, please—"**
+
+**"You chose this,"** I tell him. **"The moment you took their money. The moment you sold out your people. This is just the consequence."**
+
+I turn to leave.
+
+**"Wait!"** Viktor shouts. **"There's more! There's something else!"**
+
+I stop. Don't turn around.
+
+**"The Silent Court,"** he gasps. **"They're involved. The Calabreses aren't running this alone. They're working with the Court. This is bigger than mob wars. Bigger than families. This is—"**
+
+Footsteps on the stairs.
+
+Soft. Familiar.
+
+Vivienne.
+
+She descends into the basement wearing nothing but my shirt from last night, bare legs, hair still mussed from sleep. She should look vulnerable. Civilian. Out of place in this concrete tomb of blood and interrogation.
+
+She doesn't.
+
+She looks like she owns the room.
+
+Her eyes scan the scene. Viktor tied and broken. Sera with bloodied pliers. Me standing between them like a judge at sentencing.
+
+**"Well,"** she says calmly. **"This is an interesting way to wake up."**
 
 ---
 
-## **CHOOSE ONE AND WE GO WILD** 🔥
+### VIVIENNE
+
+I’m not stupid.
+
+The moment I woke up and Dante was gone, I knew something was wrong. The house carried that particular kind of silence, the kind that doesn’t mean peace but aftermath. Violence had already happened. It was simply waiting to continue.
+
+I followed the absence of sound down into the basement.
+
+And found this.
+
+Viktor Sokolov.
+
+My father’s most trusted lieutenant. The man who trained me in combat tactics when I was fifteen. The man who held my mother’s hand while she was dying, steady and silent when the rest of the world fell apart.
+
+He’s tied to a chair now. Broken. Tortured. Calabrese markings carved into his skin like a confession written in blood.
+
+Traitor.
+
+The betrayal should hurt.
+
+It doesn’t.
+
+I learned a long time ago not to expect loyalty from anyone who isn’t looking me directly in the eyes when they swear it.
+
+**"Vivienne,"** Dante starts, and there's something careful in his voice. **"We need to talk about—"**
+
+**"The photo,"** I finish. **"Of me and the Calabrese lieutenant."**
+
+His expression shifts. Surprise. Relief. Guilt.
+
+**"You know about it?"**
+
+**"I'm going to assume Viktor showed it to you. Or Sera did."** I walk closer, bare feet silent on cold concrete. **"I'm also going to assume you had a moment of doubt. Wondered if I was playing you. Wondered if the marriage was just another move on a board you couldn't see."**
+
+**"Vivienne—"**
+
+**"It's fine,"** I say, and mean it. **"We've known each other for three days as a couple. Two days as spouses. Doubt is reasonable. Doubt is smart."** I stop in front of Viktor, look down at him with clinical detachment. **"But for the record, I wasn't betraying anyone. I was hunting whoever killed my team in Brooklyn."**
+
+**"I know,"** Dante says. **"Viktor confirmed it."**
+
+I look at my husband. Really look at him this time.
+
+Not the weapon. Not the heir. Not the man built from violence and expectation.
+
+Him.
+
+He believed me. Before Viktor said a word. Before confirmation. Before truth was convenient or safe. Even with evidence laid out in front of him, sharp and damning, he chose trust over doubt.
+
+He chose me.
+
+That choice isn’t small. It isn’t sentimental. It’s dangerous.
+
+In our world, it means something.
+
+It means everything.
+
+**"Thank you,"** I tell him quietly.
+
+**"For what?"**
+
+**"For not shooting me first and asking questions later."**
+
+**"The thought crossed my mind,"** he admits.
+
+**"I'd have been disappointed if it hadn't."**
+
+Sera watches us with fascination, like we're a science experiment she's documenting for future reference.
+
+I turn my attention to Viktor.
+
+**"How long?"** I ask him.
+
+He knows what I'm asking.
+
+**"Three years."**
+
+**"My mother?"**
+
+His silence is answer enough.
+
+Cold fury crystallizes in my chest. My mother died three years ago. Cancer, they said. Aggressive. Untreatable.
+
+But in our world, cancer is sometimes induced. Sometimes accelerated. Sometimes weaponized.
+
+**"Did you know?"** I ask, voice very quiet. Very controlled.
+
+**"I suspected,"** Viktor whispers. **"After. But I couldn't prove—"**
+
+I hit him.
+
+Fast. Precise. Not a slap. A punch. Knuckles to jaw. The kind that breaks teeth and rattles brains.
+
+His head snaps sideways. Blood sprays.
+
+**"My mother TRUSTED you,"** I say, and my voice doesn't shake. Doesn't break. It just exists. Cold. Final. **"She called you family."**
+
+**"I'm sorry—"**
+
+**"You will be."**
+
+I look at Sera. **"What did Dante tell you to do with him?"**
+
+**"Get information. Then make it clean."**
+
+**"Change of plans,"** I say. **"Get the information. Then make it slow."**
+
+Dante doesn't argue. Doesn't question.
+
+He just nods.
+
+Because he understands.
+
+Some betrayals don't deserve mercy.
+
+**"Vivienne, please—"** Viktor starts.
+
+**"You said something about the Silent Court,"** I interrupt, ignoring his plea entirely. **"Explain."**
+
+He's crying now. Broken. **"They're funding the Calabreses. Providing intelligence. Resources. They want the families at war. Want the old structures destroyed. Want to rebuild everything under their control."**
+
+**"Why?"**
+
+**"Power. Always power. The families control too much. Too much territory. Too much loyalty. The Court wants to centralize. Wants to be the only game in town."**
+
+I exchange a glance with Dante.
+
+This changes everything.
+
+The Cathedral attack wasn't just a Calabrese power play. It was an opening move in a much larger game. And we're not players—we're pieces being moved by hands we can't see.
+
+**"Do you have proof?"** Dante asks.
+
+**"Phone,"** Viktor gasps. **"Hidden in my apartment. Under the floorboards. Master bedroom. Southwest corner. Everything's there. Financial records. Communications. Orders."**
+
+**"If you're lying—"** I start.
+
+**"I'm not. I swear. I'm dead anyway. Why would I lie?"**
+
+Fair point.
+
+**"Sera,"** Dante says. **"Send someone to retrieve it. Discreetly."**
+
+She nods and pulls out her phone, starts typing.
+
+I crouch down in front of Viktor so we're eye level.
+
+**"My mother's cancer,"** I say softly. **"Who ordered it?"**
+
+**"I don't know. I wasn't that high up the chain. I just... I suspected the timing. That's all."**
+
+I believe him.
+
+Unfortunately.
+
+**"One more question,"** I tell him. **"The photographer. The one who's been shadowing us. Where would he be now?"**
+
+**"Close,"** Viktor says. **"He always stays close to his subjects. Probably within a mile of this house. Watching. Documenting."**
+
+My skin crawls.
+
+Someone's been watching us. In our home. In our bedroom. Capturing evidence for use against us.
+
+**"How do we find him?"**
+
+**"You don't. He finds you when he's ready to strike."**
+
+Not helpful.
+
+I stand, brush imaginary dust off my thighs.
+
+**"Sera,"** I say. **"He's yours. Do what you do best."**
+
+**"Wait!"** Viktor shouts. **"There's one more thing! About the dinner tomorrow! They're not just planning to kill your fathers—they're planning to frame YOU for it! Both of you! Make it look like a coup! Turn the entire underworld against you!"**
+
+Dante and I freeze.
+
+**"Explain,"** he demands.
+
+**"The guns they're bringing. They're registered to you. To Vivienne. The bullets match weapons you own. The evidence trail leads directly back to both of you. When your fathers die, everyone will think you killed them to seize power."**
+
+**"Who planned this?"** I ask.
+
+**"The Court. Through the Calabreses. It's supposed to look like natural succession gone wrong. Like you two got greedy. Impatient."**
+
+I look at Dante.
+
+He looks at me.
+
+We're thinking the same thing.
+
+*Checkmate in three moves.*
+
+Unless we flip the board.
+
+**"How many people know about this plan?"** Dante asks.
+
+**"Everyone involved. Maybe twenty operatives. Plus whoever's running things from the Court."**
+
+**"And if we kill them all tomorrow at the dinner?"** I ask. **"Before they can execute?"**
+
+**"You'd still be blamed. The evidence is already planted. The narrative is already written. Even if you survive, you lose."**
+
+Dante's jaw tightens.
+
+This is sophisticated. Layered. Every angle covered.
+
+We can't just fight our way out of this one.
+
+We need to think.
+
+**"Sera,"** Dante says. **"Continue the interrogation. Get everything. Every detail. Every name. Every contingency."**
+
+**"And then?"**
+
+**"Then you know what to do."**
+
+She smiles. Sharp. Anticipating.
+
+Viktor starts begging.
+
+We ignore him and head back upstairs.
+
+---
+
+### DANTE
+
+Back in the main house, Vivienne and I stand in the kitchen as dawn starts bleeding through the windows. Neither of us speaks for a long moment.
+
+**"So,"** she finally says. **"The Silent Court is real. They're trying to destroy us. And they've spent three years setting up an elaborate trap that culminates tomorrow at a dinner designed to murder our fathers and frame us for it."**
+
+**"That about sums it up,"** I agree.
+
+**"Cool. Cool cool cool."** She pours coffee. Hands me a cup. **"We should probably call off the dinner."**
+
+**"Can't. They'll just try again. And next time we won't know it's coming."**
+
+**"So we spring their trap on purpose."**
+
+**"Yes."**
+
+**"And somehow flip it so they're the ones who end up dead."**
+
+**"Exactly."**
+
+She sips her coffee. Thinking.
+
+**"We'll need help,"** she says. **"People we trust absolutely. No room for more moles."**
+
+**"Sera."**
+
+**"Obviously Sera."**
+
+**"Your father's network. My father's people. But only the ones we've personally vetted."**
+
+**"That's maybe ten people total."**
+
+**"Against twenty operatives plus whatever the Court sends as backup."**
+
+**"Bad odds."**
+
+**"Terrible odds."**
+
+**"I love terrible odds,"** she says, and means it.
+
+I laugh despite everything. Because of course she does.
+
+**"We need to warn our fathers,"** I say. **"Without tipping off anyone else."**
+
+**"Agreed. But carefully. Your father might try to cancel. Mine will definitely want to go nuclear."**
+
+**"Let them. But on our terms."**
+
+She nods. Sets down her coffee. Moves closer.
+
+**"Dante."**
+
+**"Vivienne."**
+
+**"If this goes wrong tomorrow—"**
+
+**"It won't."**
+
+**"But if it does,"** she insists. **"If one of us doesn't make it—"**
+
+I cup her face in my hands. Stop the words before they can form.
+
+**"We both make it,"** I tell her. **"Or neither of us does. Those are the only two options."**
+
+**"That's not strategic."**
+
+**"I don't care."**
+
+**"Dante—"**
+
+**"I mean it. We survive together. Or we go down together. I'm not losing you three days after finding you."**
+
+She stares at me. Something vulnerable flickering behind those sharp eyes.
+
+**"You're insane,"** she whispers.
+
+**"You married me."**
+
+**"Clearly a tactical error."**
+
+**"Too late now."**
+
+She kisses me.
+
+Hard. Urgent. Desperate in a way that has nothing to do with hunger and everything to do with memory. Like she’s trying to carve the taste of me into herself, to make sure it survives even if tomorrow doesn’t.
+
+For a moment, the world narrows to that single point of contact. Breath. Heat. The unspoken understanding that neither of us is promised anything beyond the next sunrise.
+
+When she pulls back, her eyes are dry.
+
+Steady.
+
+Burning with a resolve that doesn’t need tears to prove it.
+
+**"Okay,"** she says. **"Let's go plan a counter-massacre."**
+
+**"That's my girl."**
+
+We spend the next three hours sealed inside Dante’s study. Doors locked. Phones powered down. The outside world reduced to a liability.
+
+We build a plan the way surgeons work, precise, ruthless, aware that even a millimeter of error means death. Every variable accounted for. Every contingency layered on top of another. Timing measured in seconds. Trust measured in blood.
+
+By the time Sera finally emerges from the basement, her clothes smeared dark and her expression quietly satisfied, we already feel the shape of it taking form. She drops a USB drive onto the desk. Inside it is everything Viktor knew before he stopped knowing anything at all.
+
+Names. Channels. Weak points. The anatomy of a betrayal laid bare.
+
+It isn’t a guarantee.
+
+But it’s a chance.
+
+And in our world, that’s all you ever get.
+
+---
+
+### VIVIENNE
+
+8:47 a.m.
+
+I’m back in the bedroom, getting dressed.
+
+Tactical gear masquerading as elegance. Kevlar threaded invisibly into fabric that costs more than most people’s cars. Weapons hidden where designers never meant for steel or gunmetal to rest, seams and silhouettes repurposed for violence.
+
+Luxury, weaponized.
+
+I move with practiced efficiency, each adjustment deliberate, muscle memory taking over where thought isn’t needed. There’s no hesitation. No nerves. Just preparation.
+
+Dante stands in the doorway, watching.
+
+Not intruding. Not speaking.
+
+Just there.
+
+**"You look lethal,"** he observes.
+
+**"That's the idea."**
+
+**"I like it."**
+
+**"I know you do."**
+
+He crosses the room and pulls me into him.
+
+The motion is firm, instinctive, like he’s claiming something that’s already his. For just a moment, I let myself lean into it. Let the armor slip. Let the world narrow to the solid warmth of his body, the steady certainty of his arms.
+
+I allow myself to feel small.
+
+Protected.
+
+It’s a luxury I almost never permit. A weakness I usually crush before it can take root. But here, in this brief, stolen second, I let it exist. Then it’s gone, folded back into steel and resolve, exactly where it belongs.
+
+**"We're going to survive this,"** he says. Not a question. A command.
+
+**"Yes,"** I agree. **"We are."**
+
+Because the alternative is unacceptable.
+
+We’ve built something here. Fragile. Bloodstained. Probably doomed from the start, stitched together with violence and choice and defiance. But it’s ours.
+
+And I will burn the entire underworld to ash before I let anyone take it from me.
+
+**"Ready?"** Dante asks.
+
+**"Always."**
+
+We head downstairs together.
+
+Sera is waiting in the living room, cleaned up, armed to the teeth, looking like a very dangerous child playing dress-up with adult weapons.
+
+**"Viktor talk?"** I ask.
+
+**"Extensively,"** she confirms. **"Before the end."**
+
+**"Good."**
+
+**"Also,"** Sera adds, pulling out her phone, **"I found something interesting in his records. A name that keeps appearing. Someone high up in the Court's hierarchy."**
+
+**"Who?"** Dante asks.
+
+She turns the phone toward us.
+
+The name on the screen makes my blood run cold.
+
+**Senator Richard Calloway.**
+
+The same senator the Court mentioned in their recruitment letter. The one they wanted us to assassinate as a "test."
+
+**"He's not just connected to the Court,"** Sera explains. **"He IS the Court. Or at least one of the three leaders. He's been funding the Calabrese operations. Providing political cover. Making evidence disappear."**
+
+Dante's expression hardens.
+
+**"So the assassination request wasn't a test,"** he says slowly. **"It was them cleaning up a loose end. Using us as disposable tools."**
+
+**"And if we refused,"** I continue, **"they'd make sure our war with the Calabreses never ended. Keep us distracted and dying while they consolidated power."**
+
+**"Exactly."**
+
+We fall silent for a moment, the weight of it settling in.
+
+The Silent Court isn’t just another criminal organization. It isn’t a rival family or a syndicate you can cut the head off and watch collapse. It’s a shadow government. Politicians. Judges. Law enforcement. All of them woven together, hands clean in public, filthy beneath the surface, controlling the underworld from above with laws and favors instead of guns.
+
+And somehow, against all odds and sense,
+
+we just became their primary target.
+
+**"Change of plans,"** Dante says. **"We don't just survive tomorrow. We win. Completely. Utterly. We destroy the Calabrese operation, expose the Court's involvement, and make sure everyone knows what happens when they come after us."**
+
+**"That's ambitious,"** I observe.
+
+**"You have a better idea?"**
+
+**"No. I love it. Let's burn it all down."**
+
+Sera grins. **"Now you're talking my language."**
+
+My phone buzzes.
+
+My father. An immediate meeting requested. No pleasantries. No explanation.
+
+A second later, Dante’s phone rings.
+
+His father. Same request.
+
+Same timing.
+
+Same urgency.
+
+They know something’s wrong.
+
+**"Time to brief the patriarchs,"** I say.
+
+**"This should be fun,"** Dante mutters.
+
+We leave together.
+
+Sera follows a step behind us, quiet, watchful, lethal in the way shadows are lethal when they move on their own terms.
+
+Tomorrow, we face the trap.
+
+But today?
+
+Today, we make damn sure we aren’t the ones who get caught in it.
+
+---
+
+**TO BE CONTINUED...**
+## CHAPTER 5: THE SILENT COURT
+
+### DANTE
+
+The drive to my father''s estate takes twenty minutes.
+
+Twenty minutes of silence, tension coiled tight in the air between us. Vivienne sits beside me in the back seat, posture perfect, expression unreadable. To anyone watching, she looks calm. Composed. In control.
+
+I know better.
+
+I can see it in the way her fingers tap against her thighrhythmic, measured, the same pattern she uses when she''s calculating trajectories and kill counts. She''s running scenarios. Planning contingencies. Preparing for every possible outcome of the conversation we''re about to have.
+
+Sera drives. She insisted. Said she wanted to "get familiar with defensive driving protocols." What she really wanted was control of the vehicle in case we need to make a very fast, very violent exit.
+
+Smart kid.
+
+Terrifying kid.
+
+Our kid now, apparently.
+
+**"Your father''s going to be difficult,"** Vivienne says quietly. Not a question. A statement.
+
+**"He''s going to want to cancel the dinner. Go to war immediately. Scorched earth."**
+
+**"Mine will want the same."**
+
+**"We can''t let them."**
+
+**"I know."**
+
+She turns to look at me properly. **"We''re asking them to walk into an assassination attempt. To trust that we can flip it. That''s... a lot."**
+
+**"They trusted us enough to arrange this marriage."**
+
+**"That was strategy. This is faith."**
+
+She''s right. This is different.
+
+This is asking two men who''ve built empires on paranoia and controlled violence to voluntarily put their heads in a noose and trust that their childrentheir psychopath children who''ve been married for three dayscan cut the rope before it tightens.
+
+**"They''ll do it,"** I say with more confidence than I feel.
+
+**"How do you know?"**
+
+**"Because the alternative is watching everything they''ve built collapse from the inside while the Silent Court picks through the wreckage."**
+
+**"And if they refuse?"**
+
+**"Then we do it anyway. Without them."**
+
+She smiles. Small. Dangerous. Satisfied.
+
+**"I was hoping you''d say that."**
+
+We pull through the gates of my father''s compound. Armed guards everywhere. More than usual. He knows something''s wrong.
+
+As we step out of the car, I see my father waiting at the entrance. Lorenzo Morelli. Sixty-three years old. Silver hair. Sharp eyes that miss nothing. A man who''s survived four decades in this life through a combination of strategic brilliance and the willingness to do absolutely anything to protect what''s his.
+
+He''s not alone.
+
+Dmitri Rostov stands beside him. Vivienne''s father. Taller. Broader. A bull where Lorenzo is a fox. But equally dangerous. Equally calculating.
+
+Both men study us as we approach.
+
+They''re reading us. Looking for tells. For weaknesses. For deception.
+
+They find none.
+
+Because we''re not hiding anything.
+
+Not from them.
+
+Not anymore.
+
+**"Inside,"** Lorenzo says. Not a request.
+
+We follow them into his study. The door closes. Locks. The room is swept for bugs daily. Triple-reinforced walls. No windows. A bunker disguised as an office.
+
+The safest place to have the most dangerous conversation.
+
+Lorenzo moves to his desk. Dmitri takes position near the fireplace. Classic power positioning. They''re presenting a united front.
+
+Good.
+
+We''ll need it.
+
+**"Talk,"** Dmitri orders, looking at his daughter.
+
+Vivienne doesn''t flinch. Doesn''t hesitate.
+
+**"Viktor Sokolov was a traitor,"** she says flatly. **"Sold out to the Calabreses three years ago. He''s dead now."**
+
+Dmitri''s expression doesn''t change. But I see his hand tighten around his glass. Viktor was his second-in-command. A trusted advisor. A friend.
+
+**"Proof?"** he asks, voice dangerously quiet.
+
+Sera steps forward, offers a tablet. **"Full confession. Financial records. Communication logs. Everything."**
+
+Dmitri takes it. Reads. His face hardens with every line.
+
+Lorenzo looks at me. **"This is why you called this meeting?"**
+
+**"Partially,"** I admit. **"Viktor gave us intelligence before he died. About tomorrow''s dinner."**
+
+**"What about it?"**
+
+**"It''s a trap. The Calabrese family plans to assassinate both of you. And frame Vivienne and me for it."**
+
+Silence.
+
+Heavy. Absolute.
+
+Then Lorenzo laughs.
+
+Not amused. Dark. The laugh of a man who''s seen every trick and isn''t surprised anymore.
+
+**"Of course they do,"** he says. **"Ambitious. Stupid. But ambitious."**
+
+**"It''s worse than that,"** Vivienne says. **"They''re not working alone."**
+
+She takes the tablet from her father, swipes to a new file, and turns it toward both patriarchs.
+
+**"The Silent Court,"** she says. **"Have you heard of them?"**
+
+The room temperature drops about ten degrees.
+
+Lorenzo and Dmitri exchange a look. Long. Weighted. Full of history I don''t understand.
+
+**"Yes,"** Lorenzo says finally. **"We''ve heard of them."**
+
+**"What do you know?"** I ask.
+
+My father moves to the bar, pours four glasses of whiskey. Hands them out. Takes a long drink before speaking.
+
+**"Twenty years ago,"** he begins, **"the underworld was chaos. Every family fighting every other family. No structure. No rules. Just violence and territory grabs. It was profitable, but unsustainable."**
+
+Dmitri picks up the thread. **"Then someone started consolidating. Not by force. By offering something better. Protection. Political cover. Access to resources no single family could access alone. In exchange for tribute. For loyalty. For obedience."**
+
+**"The Silent Court,"** I say.
+
+**"The Silent Court,"** Lorenzo confirms. **"Three leaders. Never named publicly. Never photographed. Never caught. They operate through intermediaries. Politicians. Judges. Cops. Legitimate businessmen who provide cover for illegitimate operations."**
+
+**"And you work with them?"** Vivienne asks her father.
+
+**"Work FOR them,"** Dmitri corrects bitterly. **"We all do. Every major family. We pay tribute. We follow rules. In exchange, they keep the law off our backs. Keep the feds distracted. Make problems disappear."**
+
+**"Why didn''t you tell us?"** I demand.
+
+**"Because,"** Lorenzo says, **"the first rule of the Silent Court is that you don''t talk about the Silent Court. To anyone. Not your lieutenants. Not your heirs. Not your wives."** He meets my eyes. **"They''re everywhere, Dante. Embedded in every institution. They hear everything. See everything. And if you step out of line, you disappear."**
+
+**"How many families have disappeared?"** Vivienne asks.
+
+**"Twelve,"** Dmitri says. **"In the last two decades. All of them tried to break away. Tried to operate independently. All of them were systematically destroyed. Assassinations. Federal raids. Asset seizures. Internal betrayals. Until nothing was left."**
+
+I process this. The Silent Court isn''t just another player.
+
+They''re the house.
+
+And we''re betting against the house.
+
+**"Senator Calloway,"** I say. **"He''s one of the three leaders, isn''t he?"**
+
+Lorenzo''s eyebrows rise. **"How did you"**
+
+**"Viktor''s records. They mentioned him repeatedly. High-level communications. Direct orders."**
+
+**"Yes,"** Lorenzo confirms. **"Richard Calloway. United States Senator. Decorated war hero. Philanthropist. Presidential hopeful."** His voice drips sarcasm. **"And one third of the most powerful criminal organization in the country."**
+
+**"Who are the other two?"** Vivienne asks.
+
+**"We don''t know,"** Dmitri admits. **"Calloway is the political face. The one who operates in the light. The other two stay in shadow. We''ve never been able to identify them."**
+
+**"But,"** Lorenzo adds, **"we know what they control. One runs operationscoordination between families, strategic planning, resource allocation. The other handles enforcementeliminating threats, maintaining discipline, making sure no one steps out of line."**
+
+**"And they want us dead,"** I say. **"Why?"**
+
+**"Because you''re dangerous,"** my father says simply. **"This marriagethis alliance between the Morellis and the Bratvait represents something they can''t control. A unified power base that''s too strong to manipulate. Too loyal to infiltrate. Too smart to be fooled by their usual tactics."**
+
+**"They wanted us to fight each other,"** Vivienne realizes. **"That''s why they supported the Calabrese family. Why they''ve been feeding them intelligence and resources. They wanted to keep our families at war."**
+
+**"Exactly,"** Dmitri confirms. **"As long as we were enemies, we were predictable. Manageable. But now"**
+
+**"Now we''re married,"** I finish. **"United. Unpredictable. A threat to their entire power structure."**
+
+**"So they''re going to kill you,"** Lorenzo says. **"Both of you. And your fathers. Wipe out the leadership of both families. Install puppet successors who''ll do what they''re told. Return things to the status quo."**
+
+**"They''re going to try,"** Vivienne corrects. **"There''s a difference."**
+
+Dmitri studies his daughter. Really looks at her. And I see something shift in his expression. Recognition. Pride. Fear.
+
+**"You have a plan,"** he says.
+
+**"We have a plan,"** she confirms.
+
+**"Tell us."**
+
+For the next hour, we lay it all out.
+
+The trap. The counter-trap. The evidence we''ve gathered. The weaknesses we''ve identified. The allies we''ve secured. The backup contingencies we''ve prepared.
+
+It''s ambitious.
+
+It''s dangerous.
+
+It''s absolutely insane.
+
+And by the end, both patriarchs are smiling.
+
