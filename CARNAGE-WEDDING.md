@@ -1715,7 +1715,7 @@ None of it matters.
 
 Not now.
 
-Right now, there is only this moment. This room. This bed. Two monsters who met in the middle of a cathedral massacre and recognized themselves in each other without hesitation.
+Right now there is only this moment. This room. This bed. Two monsters who met in the middle of a cathedral massacre and recognized themselves in each other without hesitation.
 
 We didn’t negotiate it.
 Didn’t question it.
@@ -1749,7 +1749,7 @@ I follow the scent into the kitchen.
 
 Vivienne is already there.
 
-She's perched on the island in nothing but my shirt, bare legs hooked around the stool, completely unbothered by the world she's just thrown off balance. The fabric hangs loose on her, stolen and claimed, and her hair is a beautiful mess of dark intent, wild from sleep and sin. Somehow, she looks even more lethal like this. More beautiful. It should be illegal.
+She's perched on the island in nothing but my shirt, bare legs hooked around the stool, completely unbothered by the world she's just thrown off balance. The fabric hangs loose on her, stolen and claimed, and her hair is a beautiful mess of dark intent, wild from sleep and sin. Somehow she looks even more lethal like this. More beautiful. It should be illegal.
 
 In her hands, her favorite knife glints as it catches the light. She cleans it slowly, lovingly, every motion precise and intimate, like a ritual she's performed a thousand times. Calm. Controlled. Tender in a way that has nothing to do with softness and everything to do with danger.
 
@@ -1828,7 +1828,815 @@ Someone just declared war in our names.
 
 ---
 
+### DANTE
+
+Someone walks into the kitchen.
+
+Casually. Calmly. Like she belongs there.
+
+A woman—no. A girl. Thirteen, maybe fifteen at most. Too young. Far too young for the way she moves, for the way dried blood stains her clothes like an afterthought. None of it is hers. That's immediately clear.
+
+In her hand, she carries Marco Calabrese's wedding ring.
+
+**"Morning, lovebirds,"** she says cheerfully. **"I wanted to come see you both right after last night. Thought about knocking. Thought about kicking the door in. But you were… well."** She smiles, unbothered. **"Loud. I figured I'd be welcome once you finished."**
+
+Guns come up in seconds.
+
+My father. Dmitri. Guards. Fingers tense, barrels steady, all trained on her heart, her head, her future.
+
+Everyone reacts—
+
+Except my wife.
+
+Vivienne doesn't even look up.
+
+She keeps polishing her blade, slow and precise, as if a blood-soaked teenager strolling into our kitchen is the least interesting thing that's happened today. She doesn't blink. Doesn't tense. Doesn't acknowledge the girl's existence at all.
+
+**"I'm not here to fight,"** the girl says easily. **"I'm here to confess."**
+
+She tosses the ring onto the table. It skids across polished wood and comes to a stop between us.
+
+**"I killed Marco. I left the head. I framed you."**
+
+The room tightens.
+
+Vivienne finally speaks, voice calm, almost bored.
+
+**"Why?"**
+
+The girl's eyes light up, like she's been waiting for that question.
+
+**"Because I wanted to meet you properly,"** she says. **"I'm Sera Volkov. I've been studying you. Learning from you. You're legends where I come from. The Viper and the Devil."** Her smile sharpens. **"I needed to know if the stories were true."**
+
+My father cuts in coldly. **"Who sent you?"**
+
+Sera laughs. Not nervous. Not defensive.
+
+**"Pain?"** she says lightly. **"Loneliness?"** She shrugs. **"Hard to say."**
+
+Then her tone shifts. Not softer. Just… heavier.
+
+**"Marco Calabrese murdered my family,"** she continues. **"Slowly. Methodically. My mother first. Then my father. My brothers. My little sister."** Her smile never quite leaves, but something hollow flickers behind it. **"I hid under the floorboards and listened to him laugh while it happened."**
+
+No one interrupts.
+
+**"He kept me alive,"** Sera goes on. **"Not mercy. Entertainment. Made me clean his knives. Made me watch. Taught me things. I learned fast."** She tilts her head. **"Eventually, I learned enough."**
+
+She straightens.
+
+**"I want in. I want to learn from the best. I want to join your… partnership."**
+
+**"By framing us for murder?"** I ask, the words slipping out before I can stop them, disbelief cracking my composure despite every instinct telling me not to show it.
+
+**"By giving you the most expensive wedding gift,"** she replies evenly, as if correcting a minor misunderstanding. **"Marco was planning to kill you both within the week. Publicly. Brutally."** A pause, deliberate. Surgical. **"I just moved up the timeline."**
+
+Her smile comes slow and satisfied, the kind that belongs to someone who knows exactly how much blood they've saved by spilling it first.
+
+**"You're welcome."**
+
+She slides a USB drive across the table. It stops right at my fingertips.
+
+**"Proof of the Calabrese plot,"** she continues, voice smooth, almost indulgent. **"Blueprints of this house. Ambush routes. Names of every family member involved. Accounts. Safe houses."** Her eyes catch the light, sharp with promise, alive in a way most people never are. **"Everything you need to wipe them out completely."**
+
+Vivienne picks up the drive and turns it over once, slow and thoughtful, examining it like a relic pulled from a crime scene museum. Her expression doesn't change. Calm. Measured. Dangerous.
+
+Then she looks at me.
+
+**"She's insane,"** she says flatly.
+
+**"Completely,"** I answer without hesitation.
+
+Sera's grin stretches wider, sharp and delighted, like she's just been paid a compliment. **"Takes one to know one."** She spreads her hands in a mock show of surrender, blood still crusted beneath her nails. **"So?"**
+
+Her eyes flick between us, bright and fearless.
+
+**"Do I get to stay,"** she asks lightly, **"or do you kill me?"**
+
+My father watches.
+Dmitri watches.
+
+Everyone waits.
+
+The silence stretches taut, dangerous, ready to snap.
+
+I study her. Really study her.
+
+This girl—this *child*—just walked into a room full of killers and confessed to framing two of the deadliest people in the underworld. Either she's suicidal, or she's exactly what she claims to be: insane, brilliant, and far too dangerous to ignore.
+
+The blood on her clothes isn't just dried. It's layered. Multiple kills. Multiple days. She's been hunting, systematically eliminating threats we didn't even know existed yet.
+
+And she did it all to get our attention.
+
+**"How did you get past security?"** I ask instead of answering.
+
+She doesn't hesitate. **"Third floor. East wing. Guard rotation changes at 6:47 AM. Four-minute gap. Climbed the drainpipe, disabled the motion sensors, bypassed three locks, and made myself at home in your library."** A beat. **"Nice book collection, by the way. Didn't know you were into Nietzsche."**
+
+My father's expression darkens. That information is classified. Our security protocols are airtight, changed weekly, known only to inner circle personnel.
+
+She shouldn't know any of this.
+
+**"How long have you been watching us?"** Vivienne asks, and there's something new in her voice. Not anger. Interest.
+
+**"Three years,"** Sera answers honestly. **"Since I escaped Marco. I needed to learn. Needed to understand what real power looked like."** Her gaze locks onto Vivienne with something approaching reverence. **"You killed seventeen men in under four minutes in Prague. No backup. No hesitation. I watched the security footage fourteen times, frame by frame, studying your movement patterns."**
+
+Then she looks at me.
+
+**"And you,"** she continues. **"Detroit. The Antonov job. You walked into a building with forty-two armed guards and walked out two hours later without a single gunshot. Just a building full of corpses and a signed confession from their boss."** Her eyes gleam. **"Psychological warfare at its finest. Beautiful work."**
+
+My spine goes cold.
+
+Those jobs were off-book. Untraceable. No witnesses. No records.
+
+And this fifteen-year-old kid just recited them like a resume.
+
+**"You've been stalking us,"** my father says, voice granite-hard.
+
+**"Studying,"** Sera corrects. **"There's a difference. Stalkers are obsessed. I'm strategic."** She gestures at the USB drive. **"I'm also useful. That drive contains everything the Calabrese family has been planning for the last eight months. Including the names of their informants in both your organizations."**
+
+Dmitri speaks for the first time since she arrived, voice cold and calculating. **"Informants?"**
+
+**"Two in the Bratva. Three in the Morelli family."** Sera's smile sharpens. **"One of them is in this room."**
+
+Every gun in the room shifts.
+
+My father's eyes narrow dangerously. Dmitri goes very, very still. The guards look at each other, suspicion blooming instant and vicious.
+
+Sera just watches, delighted, like she's conducting an orchestra and we're all playing exactly the notes she wants.
+
+**"Relax,"** she says. **"It's not the guards. It's not your fathers. It's someone close enough to know your schedules, your safe houses, your vulnerabilities."** She pauses for effect. **"Someone who's been feeding information to Marco for months. Someone who helped plan yesterday's cathedral attack."**
+
+Vivienne sets down her knife.
+
+Slowly. Deliberately.
+
+When she speaks, her voice is silk over steel. **"Give me a name."**
+
+Sera tilts her head, considering. **"What do I get in return?"**
+
+**"Your life,"** Vivienne says simply.
+
+**"I already have that,"** Sera counters. **"If you wanted me dead, I'd be dead. You're curious now. You want to know what else I know. What else I can do."** She leans forward, hands flat on the table, fearless. **"So here's my offer: I give you the name. I give you the evidence. I help you burn the Calabrese family to the ground and hunt down every rat in your organizations."**
+
+She pauses.
+
+**"And in return, you let me stay. You train me. You teach me everything you know."** Her eyes flick between me and Vivienne. **"I want to be like you. Both of you. I want to be so good at what I do that people tell stories about me the way they tell stories about the Viper and the Devil."**
+
+The audacity of it is staggering.
+
+This girl walks into our home, confesses to multiple murders, reveals a conspiracy within our own families, and then has the nerve to ask for an apprenticeship.
+
+And the worst part?
+
+I'm actually considering it.
+
+---
+
+### VIVIENNE
+
+I watch her.
+
+This strange, blood-soaked child who speaks like a soldier and moves like a ghost.
+
+Sera Volkov.
+
+I've heard that name before. Whispers in Bratva circles. A ghost story. The girl who disappeared. The one Marco Calabrese kept as a pet for two years before she vanished without a trace.
+
+We assumed she was dead.
+
+Clearly, we were wrong.
+
+She's not just alive. She's *thriving*. Feral and focused and absolutely unafraid of dying, which makes her the most dangerous kind of person.
+
+The kind with nothing left to lose.
+
+I recognize it immediately because I see it in the mirror every morning.
+
+**"The name,"** I say again, voice quiet but unyielding.
+
+Sera meets my eyes. She doesn't blink. Doesn't flinch.
+
+**"Claudia Moretti,"** she says. **"Dante's cousin. Head of intelligence operations. She's been on Marco's payroll for sixteen months. She helped plan the cathedral attack. She's the one who gave them your security protocols."**
+
+The room detonates.
+
+My father-in-law moves first, rage white-hot and barely controlled. **"Claudia is FAMILY—"**
+
+**"Claudia is a traitor,"** Sera interrupts calmly. **"Check her financials. Offshore accounts in the Caymans. Three million dollars deposited over the last year, all from Calabrese shell companies."** She gestures at the USB. **"Bank statements. Email correspondence. Voice recordings. Everything you need to confirm it."**
+
+Dante hasn't moved. Hasn't spoken.
+
+But I can see it in his eyes. The gears turning. The pieces clicking into place.
+
+Claudia was the one who insisted on the cathedral venue. Claudia arranged the security detail. Claudia had access to everything.
+
+If this is true—if Sera is telling the truth—then we've been compromised from the inside since before the wedding even happened.
+
+**"Why should we believe you?"** I ask.
+
+Sera looks at me like I've just asked the most interesting question of her life.
+
+**"Because I'm exactly like you,"** she says simply. **"I don't lie. I don't need to. Lying is for people who are afraid of consequences."** She spreads her hands. **"I killed Marco Calabrese and left his head on his mother's doorstep with a bow. I walked into a house full of mob bosses and confessed to framing two psychopaths for murder. I'm either telling the truth, or I'm the stupidest person you've ever met."**
+
+She leans back, perfectly relaxed.
+
+**"And I don't think you believe I'm stupid."**
+
+She's right.
+
+I don't.
+
+This girl is many things—broken, feral, dangerous beyond measure—but she's not stupid.
+
+I pick up the USB drive, turn it over in my fingers, feeling the weight of it. The weight of what it represents.
+
+**"If you're lying,"** I tell her, voice soft and lethal, **"I will skin you alive. Slowly. Artistically. I'll make it last for days."**
+
+Sera's smile doesn't waver.
+
+**"If I'm lying,"** she says, **"I'll hand you the knife myself."**
+
+I believe her.
+
+God help me, I actually believe her.
+
+I look at Dante. Our eyes meet across the kitchen, and in that moment, we have an entire conversation without saying a word.
+
+*She's dangerous.*
+
+*She's useful.*
+
+*She knows too much.*
+
+*She could be an asset.*
+
+*She's a child.*
+
+*She stopped being a child the moment Marco Calabrese murdered her family.*
+
+*What do we do?*
+
+The question hangs between us, unspoken but understood.
+
+And then Dante does something that surprises everyone in the room.
+
+He laughs.
+
+Not bitter. Not cruel.
+
+Genuinely amused, the sound rich and unexpected, filling the kitchen like smoke.
+
+**"Fucking hell,"** he says, shaking his head. **"We've been married less than twenty-four hours and we're already adopting strays."**
+
+My lips twitch despite myself.
+
+**"She did give us a severed head as a wedding gift,"** I point out. **"That's more thoughtful than anything our actual guests brought."**
+
+**"True,"** he concedes. He looks at Sera. **"You understand what you're asking for? This isn't a game. This isn't a training program. We don't do mentorship. We don't do second chances. You fuck up, you die. Simple as that."**
+
+**"I understand,"** Sera says.
+
+**"You'll do exactly what we tell you, when we tell you, without question."**
+
+**"Yes."**
+
+**"You'll live in this house, under our rules, under our watch. No privacy. No secrets. No mercy if you betray us."**
+
+**"I wouldn't want it any other way."**
+
+Dante looks at his father. At Dmitri. At the guards still holding weapons trained on a fifteen-year-old girl.
+
+**"Lower your guns,"** he says quietly.
+
+No one moves.
+
+**"I said lower your guns."**
+
+This time, they obey.
+
+Slowly, reluctantly, barrels drop. Safeties click back on. The tension doesn't disappear, but it shifts, recalibrates into something just slightly less lethal.
+
+Dante stands, walks over to Sera, and extends his hand.
+
+**"Welcome to the family,"** he says. **"Don't make me regret this."**
+
+Sera takes his hand. Her grip is firm, calloused, the hands of someone who's held weapons far too young.
+
+**"I won't,"** she promises.
+
+Then she looks at me.
+
+Waiting.
+
+I stand, move to join them, and the three of us form a strange, bloodstained triangle in the middle of my kitchen.
+
+**"First rule,"** I tell her. **"Never lie to us."**
+
+**"Second rule,"** Dante adds. **"Loyalty above everything. Even survival."**
+
+**"Third rule,"** I continue. **"If you kill someone, make sure they deserve it."**
+
+Sera nods, absorbing each command like scripture.
+
+**"And the fourth rule?"** she asks.
+
+Dante and I exchange a glance.
+
+**"Don't get caught,"** we say in unison.
+
+Sera grins, bright and feral and absolutely delighted.
+
+**"I can work with that."**
+
+---
+
+### DANTE
+
+My father looks like he wants to shoot someone.
+
+Possibly me.
+
+Possibly Sera.
+
+Possibly everyone in the room and then himself.
+
+**"You can't be serious,"** he says, voice tight with barely controlled fury. **"You're taking in a stranger? A CHILD? Who just confessed to framing you for murder?"**
+
+**"She's not a stranger,"** I counter. **"She's been studying us for three years. She knows our routines better than half our own people."** I gesture at the USB drive. **"And she just handed us intelligence that could win this war before it even starts."**
+
+**"Or she's a plant,"** Lorenzo shoots back. **"A Calabrese spy sent to infiltrate our organization."**
+
+**"Marco Calabrese murdered her entire family,"** Vivienne says, voice cold and final. **"She's not working for them. She's working against them. Against everyone."** She picks up the ring from the table. **"And she's good enough to kill their heir without leaving evidence. That's not a spy. That's a weapon."**
+
+Dmitri speaks, his Russian accent thicker when he's thinking strategically. **"Even if intelligence is legitimate, she is unstable. Unpredictable. Dangerous."**
+
+**"So are we,"** I point out.
+
+Silence.
+
+Because he can't argue with that.
+
+**"We'll verify the information on the drive,"** I say, making it a statement, not a request. **"If Sera's telling the truth about Claudia, we move on her tonight. Quietly. Thoroughly. And we use whatever else is on that drive to dismantle the Calabrese network piece by piece."**
+
+**"And if she's lying?"** my father asks.
+
+I look at Sera. She looks back, unflinching.
+
+**"Then I'll kill her myself,"** I say simply.
+
+**"I'll help,"** Vivienne adds.
+
+Sera just shrugs, unbothered by the casual discussion of her potential execution.
+
+**"Fair enough,"** she says.
+
+My father and Dmitri exchange a long look. The kind that speaks volumes without words. The kind that happens between men who've ruled criminal empires for decades and know exactly how fragile power can be.
+
+Finally, Lorenzo exhales sharply.
+
+**"Fine,"** he says. **"But she's YOUR responsibility. She fucks up, it's on you. She betrays us, you handle it. Understood?"**
+
+**"Understood,"** I confirm.
+
+Dmitri nods slowly. **"I will have my people verify information independently. If there are moles in Bratva, I want them found. Tonight."**
+
+**"Agreed,"** Vivienne says.
+
+The two patriarchs stand, finishing their coffee with grim finality. This impromptu family breakfast has officially devolved into a war council, and we all know it.
+
+**"One more thing,"** my father says, pausing at the door. He looks at Sera. **"If you ever threaten my family again—if you ever put them at risk—I will personally ensure you spend your last moments begging for death."**
+
+Sera meets his gaze without fear.
+
+**"Noted,"** she says.
+
+Then she smiles.
+
+**"But respectfully, sir, your family was already at risk. I just exposed it."**
+
+Lorenzo's jaw tightens, but he doesn't argue. Can't argue. Because she's right.
+
+After they leave—fathers, guards, the whole intimidating entourage—the kitchen falls into a strange, loaded silence.
+
+Just the three of us now.
+
+Me. Vivienne. And Sera.
+
+Our bizarre, blood-soaked new family dynamic.
+
+**"So,"** Sera says brightly, breaking the tension. **"What's for breakfast? I'm starving."**
+
+Vivienne stares at her.
+
+I stare at her.
+
+Then Vivienne laughs. Actually laughs, the sound sharp and genuine and so unexpected that it catches even me off guard.
+
+**"I like her,"** she says, looking at me.
+
+**"God help us both,"** I mutter.
+
+But I'm smiling too.
+
+---
+
+### VIVIENNE
+
+I cook.
+
+It's strange. Domestic. Surreal.
+
+Twenty-four hours ago, I killed twenty-two people at my own wedding.
+
+Now I'm making scrambled eggs for a teenage assassin who just gifted us a severed head.
+
+Life is weird.
+
+Sera watches me work, studying my movements with the same intensity she probably used to study our kill patterns. Learning. Cataloging. Absorbing.
+
+**"You're left-handed,"** she observes. **"But you shoot right-handed. Why?"**
+
+**"Versatility,"** I answer, cracking eggs into a bowl. **"If my dominant hand is injured, I don't become useless."**
+
+**"Smart."**
+
+Dante leans against the counter, scrolling through the contents of the USB drive on his laptop. His expression darkens with every file he opens.
+
+**"She's not lying,"** he says quietly. **"Claudia's financials are exactly where Sera said they'd be. Three million in offshore accounts. Email trails. Meeting logs."** He looks up, and there's murder in his eyes. **"She's been feeding the Calabrese family our intel since before the engagement was even announced."**
+
+Fury coils in my chest, cold and surgical.
+
+Claudia.
+
+I met her twice. She seemed competent. Professional. Trustworthy.
+
+Apparently, I was wrong.
+
+**"How do you want to handle it?"** I ask.
+
+**"Personally,"** Dante says. **"Tonight. After we've extracted everything she knows."**
+
+He doesn't need to elaborate. I understand perfectly.
+
+Claudia won't die quickly.
+
+**"There's more,"** he continues, scrolling further. **"The Calabrese family has been planning this for months. The cathedral attack wasn't improvised—it was phase one of a three-phase operation."**
+
+**"What's phase two?"** Sera asks.
+
+**"Assassinate both our fathers,"** Dante reads. **"Frame it as internal family conflict. Let the organizations tear themselves apart from the inside."**
+
+**"And phase three?"**
+
+**"Move in during the chaos. Absorb both territories. Consolidate power."**
+
+I set down the spatula, appetite gone.
+
+**"When?"**
+
+**"Phase two was scheduled for tomorrow night,"** Dante says. **"During the joint family dinner."**
+
+The family dinner.
+
+The one where we're supposed to publicly demonstrate unity between the Morelli and Rostov families. Where both our fathers will be in the same room, surrounded by dozens of people, any one of whom could be compromised.
+
+It's the perfect setup for an assassination.
+
+And we almost walked right into it.
+
+**"We need to cancel,"** I say.
+
+**"We can't,"** Dante counters. **"If we cancel, we look weak. Scared. The other families will sense blood in the water."**
+
+**"If we don't cancel, our fathers die."**
+
+**"Not if we flip the script,"** Sera interjects.
+
+We both look at her.
+
+She's smiling. That same feral, delighted expression that says she's three steps ahead and enjoying every second of it.
+
+**"You don't cancel the dinner,"** she explains. **"You turn it into a trap. You know they're coming. You know their plan. So you let them walk into YOUR kill box instead of the other way around."**
+
+Dante's eyes light up with understanding.
+
+**"A counter-ambush,"** he says slowly.
+
+**"Exactly,"** Sera confirms. **"They're expecting security as usual. Routine protocols. They've planned for that. But what if you change everything? What if you control every variable?"**
+
+I start to see it. The shape of it forming in my mind like a blueprint written in blood.
+
+**"We use Claudia,"** I say. **"Feed her false information. Let her think the plan is proceeding as expected."**
+
+**"Meanwhile, we replace our security with people we trust absolutely,"** Dante adds. **"People who haven't been compromised."**
+
+**"And when the Calabrese hitters show up,"** Sera finishes, **"they walk into a room full of people who know exactly what they're planning and are ready to kill them for it."**
+
+The plan crystallizes, sharp and perfect.
+
+**"We'll need to move fast,"** Dante says. **"Verify everyone on the security team. Root out the other moles. And we need to make Claudia believe everything is normal until the exact moment we want her to know it's not."**
+
+**"I can help with that,"** Sera offers. **"I'm good at surveillance. Infiltration. Making people disappear."**
+
+I hand her a plate of eggs.
+
+**"Eat first,"** I tell her. **"You can't help us if you pass out from hunger."**
+
+She takes the plate, and for just a moment, the hardness in her expression cracks. She looks exactly like what she is: a fifteen-year-old kid who's been fighting to survive for years and just realized she might have finally found somewhere safe.
+
+**"Thank you,"** she says quietly.
+
+**"Don't thank us yet,"** Dante warns. **"You haven't seen how we work."**
+
+**"That's why I'm here,"** Sera says. **"To learn."**
+
+She digs into the food like she hasn't eaten in days. Which, based on the state of her clothes, might actually be true.
+
+Dante and I exchange another look.
+
+*What the hell did we just get ourselves into?*
+
+The question hovers between us, unspoken and enormous.
+
+But neither of us suggests sending her away.
+
+Because the truth is, as insane as this is, as reckless and potentially catastrophic—
+
+Sera might be exactly what we need.
+
+A wild card. An unknown variable. Someone who thinks like us but isn't bound by the same rules and hierarchies.
+
+Someone who's just crazy enough to help us win an unwinnable war.
+
+---
+
+### DANTE
+
+The rest of the morning passes in organized chaos.
+
+Vivienne and I work through the files on the USB drive, cross-referencing names, accounts, communications. Every piece of evidence Sera provided checks out. Every claim she made is backed by documentation.
+
+She's either telling the truth, or she's orchestrated the most elaborate con I've ever seen.
+
+I'm betting on the former.
+
+Sera, meanwhile, makes herself useful. She's downloaded the building schematics, marked entry points, identified security weaknesses, and flagged seventeen potential vulnerabilities in our current protocols.
+
+All before noon.
+
+**"You're thorough,"** I observe.
+
+**"I had good teachers,"** she says darkly. Then, lighter: **"And a lot of time to practice."**
+
+She doesn't elaborate. Doesn't need to.
+
+Two years with Marco Calabrese. Two years of surviving hell.
+
+The fact that she's functional at all is a miracle.
+
+The fact that she's this competent is terrifying.
+
+By early afternoon, we have a plan.
+
+1. Verify Claudia's betrayal independently.
+2. Extract her tonight, quietly, and interrogate her for additional intelligence.
+3. Use her credentials to feed false information to the Calabrese network.
+4. Replace security for tomorrow's dinner with verified loyalists.
+5. Set the trap.
+6. Eliminate every Calabrese operative who shows up.
+
+Simple. Clean. Brutal.
+
+Exactly the kind of plan I like.
+
+**"We move on Claudia at 8 PM,"** I say. **"She'll be at her apartment. Alone."**
+
+**"How do you know?"** Sera asks.
+
+**"Because I'm about to call her and tell her I need to discuss updated security protocols,"** I explain. **"She'll stay home and wait for my call. She won't suspect anything."**
+
+**"And when you get there?"**
+
+Vivienne smiles. Cold. Beautiful. Deadly.
+
+**"When we get there,"** she says, **"she's going to tell us everything she knows. And then she's going to disappear."**
+
+Sera nods, understanding perfectly.
+
+**"Can I watch?"** she asks.
+
+**"No,"** Vivienne and I say simultaneously.
+
+She pouts. **"Why not?"**
+
+**"Because you're fifteen,"** I say.
+
+**"I've tortured people before,"** she counters. **"Marco made me—"**
+
+**"This is different,"** Vivienne interrupts gently. **"This is family business. And you're not ready."**
+
+**"When will I be ready?"**
+
+**"When you stop asking to watch,"** I tell her.
+
+She considers this. Then nods.
+
+**"Fair enough."**
+
+The casual acceptance is somehow more disturbing than if she'd argued.
+
+This kid has seen too much. Done too much. And now we're responsible for her.
+
+God help us all.
+
+---
+
+At 7:45 PM, Vivienne and I leave Sera at the house with strict instructions not to kill anyone, blow anything up, or leave the property.
+
+She promises nothing.
+
+We drive to Claudia's apartment in silence, both of us mentally preparing for what comes next.
+
+Interrogation is an art form. And Vivienne is a master.
+
+When we arrive, Claudia answers the door with a smile. Professional. Warm. Completely unsuspecting.
+
+**"Dante! I wasn't expecting you in person. Come in, come in."**
+
+We step inside.
+
+The door closes behind us.
+
+And her smile falters.
+
+**"Is something wrong?"** she asks.
+
+**"Actually, yes,"** I say. **"We have some questions about the cathedral security protocols. Specifically, how the Calabrese family knew exactly where to attack."**
+
+Her face goes carefully blank.
+
+**"I... I don't understand."**
+
+**"Yes, you do,"** Vivienne says, voice soft and lethal.
+
+Then she moves.
+
+Fast. Precise. Terrifying.
+
+In three seconds, Claudia is on the floor, hands zip-tied behind her back, Vivienne's knee pressed against her spine.
+
+**"Let's try this again,"** Vivienne says. **"How much did they pay you to betray us?"**
+
+Claudia's breathing goes ragged.
+
+**"I don't—I didn't—"**
+
+I pull out my phone, open the financial records, and show her the screen.
+
+**"Three million dollars,"** I say. **"Offshore accounts. Calabrese shell companies. We have everything, Claudia. Emails. Recordings. Bank statements."**
+
+Her face crumples.
+
+**"It wasn't supposed to be like this,"** she whispers. **"They said no one would get hurt. They just wanted information. They said—"**
+
+**"They lied,"** Vivienne interrupts. **"And you were stupid enough to believe them."**
+
+**"Please,"** Claudia begs. **"Please, I can fix this. I can help you. I can—"**
+
+**"You're going to help us,"** I confirm. **"You're going to tell us everything you told them. Every meeting. Every contact. Every piece of intelligence you compromised."**
+
+**"And then?"** she asks, voice breaking.
+
+**"And then you disappear,"** Vivienne says simply.
+
+Claudia starts to cry.
+
+We don't care.
+
+---
+
+Three hours later, we have everything.
+
+Names. Locations. Plans. Contingencies.
+
+Claudia talked. Begged. Pleaded.
+
+None of it mattered.
+
+Traitors don't get second chances.
+
+When we're done, Vivienne makes it quick. Professional. Clean.
+
+One shot. Silenced. Final.
+
+Claudia Moretti, head of Morelli intelligence operations and Calabrese informant, is gone.
+
+We burn the body. Dispose of the evidence. Erase every trace of her existence.
+
+By midnight, it's like she never existed at all.
+
+---
+
+When we return home, Sera is exactly where we left her, sitting at the kitchen table, cleaning weapons she apparently found in our armory.
+
+**"How did it go?"** she asks without looking up.
+
+**"She talked,"** Vivienne says. **"We have everything we need for tomorrow."**
+
+**"Good."**
+
+Sera sets down the gun she's been working on and looks at us properly.
+
+**"Thank you,"** she says. **"For letting me stay. For trusting me."**
+
+**"We don't trust you,"** I correct. **"Not yet. Trust is earned."**
+
+**"Then I'll earn it,"** she says simply.
+
+And somehow, I believe her.
+
+Tomorrow, we spring the trap.
+
+Tomorrow, we end this war before it can truly begin.
+
+Tomorrow, the Calabrese family learns what happens when you come after the Viper and the Devil.
+
+But tonight?
+
+Tonight we rest.
+
+Plan.
+
+Prepare.
+
+And somewhere in the darkness, I find myself thinking that maybe—just maybe—this strange, broken, bloodstained family we're building might actually survive.
+
+---
+
 **What do you do next?**
 
 ---
 
+## 🎯 NEXT CHAPTER OPTIONS - CHOOSE YOUR PATH
+
+### **OPTION 1: THE DINNER TRAP** 🍷💀
+**Tomorrow night. The joint family dinner.**
+
+You've replaced security. Planted misinformation. Set every piece of the trap.
+
+But when the Calabrese hitters arrive, something goes wrong. **One of your "verified loyalists" isn't loyal at all.** The trap turns into a bloodbath—but not the one you planned.
+
+Your father takes a bullet meant for you. Vivienne's blade finds a target, but not before Sera—against orders—appears in the middle of the firefight with a sniper rifle and an agenda you didn't authorize.
+
+**By the time the smoke clears, you've won the battle but made thirty new enemies.**
+
+The surviving Calabrese soldiers retreat with a message: **"This isn't over. See you at the funeral."**
+
+Whose funeral are they talking about?
+
+---
+
+### **OPTION 2: THE BETRAYAL** 🎭🗡️
+**Sera wakes you at 3 AM.**
+
+She's covered in blood. Fresh blood. Not hers.
+
+**"We have a problem,"** she says.
+
+She leads you to the basement. Inside, you find **Dmitri Rostov's second-in-command—tied to a chair, beaten unconscious, with Calabrese family tattoos freshly carved into his chest.**
+
+**"He's been working for them longer than Claudia,"** Sera explains. **"I've been tracking him since I got here. Tonight he tried to send a message to the Calabrese family about tomorrow's trap."**
+
+She hands you a phone. Unsent message: **"THEY KNOW. ABORT PHASE 2."**
+
+**"I stopped him,"** Sera says. **"But there's more."**
+
+She shows you a photo on his phone. **It's Vivienne. Meeting with a Calabrese lieutenant. Two weeks before the wedding.**
+
+**"Either your wife is a traitor,"** Sera says carefully, **"or someone is setting her up. Either way, her father is going to think she betrayed the Bratva."**
+
+**How do you handle this without starting a war between your own families?**
+
+---
+
+### **OPTION 3: THE SILENT COURT** 👁️‍🗨️💎
+**A courier arrives at dawn. No name. No warning.**
+
+Inside the package: **A black envelope with a wax seal—a crown of thorns.**
+
+Vivienne recognizes it immediately. **"The Silent Court."**
+
+The letter reads:
+
+*"Mr. and Mrs. Morelli, Congratulations on your marriage and your recent... acquisitions. We've been watching with great interest. Consider Marco Calabrese's death a test—one you passed beautifully. We are prepared to offer you membership in the Court. Power beyond your families. Resources beyond your imagination. Protection from all enemies. In exchange, you complete three tasks for us. The first: Assassinate Senator Richard Calloway within 72 hours. No traces. No connections. The second and third tasks will be revealed upon completion. Refuse, and we will ensure your war with the Calabrese family never ends. Accept, and we will make you gods. You have 24 hours to decide. —The Court"*
+
+Sera reads over your shoulder.
+
+**"Holy shit,"** she breathes. **"The Silent Court is real?"**
+
+Vivienne looks pale. **"This is bigger than mob wars. This is... this changes everything."**
+
+**Do you accept their offer and enter a game far more dangerous than anything you've faced? Or do you refuse and fight a war on two fronts?**
+
+---
+
+## **CHOOSE ONE AND WE GO WILD** 🔥
