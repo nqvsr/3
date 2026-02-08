@@ -9,6 +9,10 @@
 - [Chapter 3: The Morning After](#chapter-3-the-morning-after)
 - [Chapter 4: The Betrayal](#chapter-4-the-betrayal)
 - [Chapter 5: The Silent Court](#chapter-5-the-silent-court)
+- [Chapter 6: The Dinner](#chapter-6-the-dinner)
+- [Chapter 7: Gods Don't Bleed (Until They Do)](#chapter-7-gods-dont-bleed-until-they-do)
+- [Epilogue: The Permission to Bleed](#epilogue-the-permission-to-bleed)
+- [Book Two: Empire of Blood and Choice](#book-two-empire-of-blood-and-choice)
 
 ---
 
@@ -2118,6 +2122,8 @@ Dante looks at his father. At Dmitri. At the guards still holding weapons traine
 
 No one moves.
 
+I shot my gun to the window, glass scatter all over, everyone in shock, literally everyone, except my wife, my lovely beautifully dangerous wife.
+
 **"I said lower your guns."**
 
 This time, they obey.
@@ -3618,7 +3624,6 @@ Today, we make damn sure we aren’t the ones who get caught in it.
 
 ---
 
-**TO BE CONTINUED...**
 ## CHAPTER 5: THE SILENT COURT
 
 ### DANTE
@@ -4305,6 +4310,1933 @@ Or death.
 
 ---
 
-**TO BE CONTINUED...**
+### VIVIENNE
 
-## NEXT: THE DINNER MASSACRE
+We return to our estate just past midnight.
+
+The house is quiet. Secure. Our people positioned at every entrance, every vulnerability. Tomorrow we walk into hell, but tonight?
+
+Tonight is ours.
+
+Sera disappears to her room without a word. She knows. Understands. Gives us space the way a predator respects another predator's territory.
+
+Smart kid.
+
+I follow Dante up the stairs. Watch the way he moves. Controlled. Precise. But I can see the tension in his shoulders. The weight of everything we're about to do.
+
+**"You're thinking too much,"** I say as we enter our bedroom.
+
+He turns to look at me. **"Am I?"**
+
+**"Yes. I can see it. The calculations. The contingencies. The thousand ways tomorrow could go wrong."**
+
+**"And you're not thinking about any of that?"**
+
+**"Of course I am,"** I admit. **"But not right now."**
+
+I step closer. Close enough to feel the heat radiating off him.
+
+**"Right now,"** I continue, **"I'm thinking about the fact that we might die tomorrow. That this could be our last night. And I refuse to waste it running scenarios in my head."**
+
+His eyes darken. That particular shade of blue that means danger and desire have blurred into something indistinguishable.
+
+**"What do you suggest we do instead?"** he asks, voice low.
+
+**"I think you know exactly what I suggest."**
+
+He does.
+
+Of course he does.
+
+His hands find my waist. Pull me against him. Hard. Possessive. The way he's been touching me since the cathedrallike I'm something precious and breakable and his.
+
+I'm none of those things.
+
+But I let him believe it.
+
+**"Three nights,"** he murmurs against my throat. **"We've been married three nights."**
+
+**"And?"**
+
+**"And I can't get enough of you."**
+
+**"Good."**
+
+I tilt my head back, giving him access. His mouth traces the line of my jaw, my neck, the hollow of my collarbone. Each touch deliberate. Measured. Building something slow and devastating.
+
+**"You know what's funny?"** I say.
+
+**"What?"**
+
+**"I've killed fourteen people. Tortured twice that. Burned down buildings. Destroyed lives without a second thought."**
+
+**"I'm aware."**
+
+**"But this"** I thread my fingers through his hair, **"this is the most dangerous thing I've ever done."**
+
+He pulls back just enough to look at me properly. **"Why?"**
+
+**"Because I actually care if you survive tomorrow."**
+
+The admission costs me. I can feel it. The vulnerability. The weakness.
+
+He sees it too.
+
+**"Vivienne"**
+
+**"Don't,"** I cut him off. **"Don't make it bigger than it is. I'm not suddenly human. I'm not suddenly capable of love or whatever normal people feel. But you"** I meet his eyes, **"you're mine. And I protect what's mine."**
+
+He smiles. Slow. Dangerous. Beautiful.
+
+**"Say that again."**
+
+**"Which part?"**
+
+**"The part where I'm yours."**
+
+**"You're mine,"** I repeat. **"My husband. My partner. My equal. Mine."**
+
+**"And you're mine,"** he counters. **"My wife. My Viper. My beautiful, terrifying, perfect match."**
+
+**"Yes."**
+
+**"Then let's make sure tomorrow isn't the end,"** he says. **"Let's make sure we survive. Together."**
+
+**"Together,"** I agree.
+
+And then there are no more words.
+
+Just hands and mouths and the kind of hunger that doesn't have a name.
+
+He backs me toward the bed. Slowly. Taking his time. Making me wait for it even though we both know how this ends.
+
+Control freak.
+
+I love it.
+
+My back hits the mattress. He follows me down, settling his weight over me in a way that should feel suffocating but doesn't. Instead it feels like safety. Like home.
+
+Which is insane.
+
+I don't believe in homes.
+
+But apparently my body disagrees.
+
+**"Tell me what you want,"** he demands.
+
+**"You."**
+
+**"Be specific."**
+
+**"Everything. All of you. No holding back. No restraint. I want the version of you that scares other people."**
+
+His smile could cut glass. **"Careful what you wish for."**
+
+**"I'm not careful. I'm never careful."**
+
+**"I know."**
+
+His hands move to my dress. The same black dress I wore to the cathedral. Still stained with blood from the massacre. I haven't had time to change.
+
+Haven't wanted to.
+
+There's something perfect about this. About him undressing me while I'm still marked by violence. Still carrying the evidence of what we did together.
+
+**"This dress,"** he says, fingers finding the zipper, **"has been driving me insane all day."**
+
+**"Oh?"**
+
+**"You know exactly what it does to me. Seeing you covered in blood. Knowing you earned every drop."**
+
+The zipper slides down. Slowly. Torturously.
+
+**"You're a sick man, Dante Morelli."**
+
+**"Says the woman who got aroused killing Viktor."**
+
+**"Fair point."**
+
+The dress falls away. Leaves me in black lace and bare skin and nothing else.
+
+He takes a moment. Just looks at me. Really looks.
+
+**"What?"** I ask.
+
+**"I'm memorizing this."**
+
+**"Why?"**
+
+**"Because if tomorrow goes wrong. If this is the last time"** He stops. Tries again. **"I want to remember exactly how you look right now."**
+
+Something twists in my chest. Something I don't have a name for.
+
+**"We're not dying tomorrow,"** I tell him.
+
+**"Probably not."**
+
+**"Definitely not. We're too smart. Too prepared. Too dangerous."**
+
+**"And too stubborn."**
+
+**"That too."**
+
+He leans down. Kisses me. Deep and slow and devastating.
+
+When he pulls back, his eyes have gone dark. Predatory.
+
+**"My turn,"** I say.
+
+I sit up. Push him back until he's the one on his back, looking up at me. Vulnerable.
+
+Except he's not.
+
+Not really.
+
+We both know he could overpower me in seconds if he wanted to.
+
+But he doesn't want to.
+
+He wants this. Wants me in control. Wants to see what I'll do with the power.
+
+I straddle his hips. Let him feel the weight of me. The heat.
+
+**"You're overdressed,"** I observe.
+
+**"Fix it."**
+
+I do.
+
+Slowly.
+
+Making him wait the way he made me wait.
+
+His shirt first. Buttons one by one until I can push the fabric aside and reveal the body underneath. All lean muscle and old scars. Evidence of a life lived violently.
+
+**"Beautiful,"** I murmur.
+
+**"That's my line."**
+
+**"We can share."**
+
+His pants next. Belt. Button. Zipper. All of it gone until there's nothing between us except intent.
+
+**"Vivienne"**
+
+**"Shh."**
+
+I lean down. Press my mouth to the scar on his shoulder. The one he got in a knife fight when he was seventeen. Then to the bullet wound on his ribs. Six months old. Still pink and angry.
+
+Each scar is a story.
+
+Each story is a testament to survival.
+
+**"You're cataloging,"** he observes.
+
+**"Yes."**
+
+**"Why?"**
+
+**"Same reason you were memorizing me. Just in case."**
+
+His hands find my hips. Grip tight enough to bruise.
+
+**"No 'just in case,'"** he says. **"We survive. End of story."**
+
+**"End of story,"** I agree.
+
+And then I kiss him.
+
+Deep. Hungry. Claiming.
+
+His hands move. Exploring. Mapping. Learning every place that makes me shiver, every touch that makes me arch into him.
+
+He's good at this.
+
+Too good.
+
+The kind of good that comes from practice and observation and the same ruthless attention to detail he applies to everything else.
+
+**"Dante"**
+
+**"Tell me."**
+
+**"I need"**
+
+**"I know."**
+
+He does.
+
+Of course he does.
+
+He flips us. Smooth. Effortless. Suddenly I'm the one on my back again and he's the one in control.
+
+**"Better?"** he asks.
+
+**"No."**
+
+**"Liar."**
+
+He's right.
+
+I hate that he's right.
+
+But I do like this. The weight of him. The way he looks at me like I'm something worth keeping. Worth protecting. Worth surviving for.
+
+**"Stop thinking,"** he orders.
+
+**"Make me."**
+
+He does.
+
+---
+
+### DANTE
+
+Hours later, we lie tangled together in the dark.
+
+Vivienne's head on my chest. My fingers tracing absent patterns on her shoulder. Both of us too wired to sleep despite the exhaustion.
+
+**"Tell me something,"** she says quietly.
+
+**"What?"**
+
+**"Something true. Something you've never told anyone else."**
+
+I consider this. **"You first."**
+
+**"Fine."** She's quiet for a moment. Then: **"I used to think I was broken. Not like... metaphorically. Actually broken. Like something essential was missing from my brain. From my soul, if such things exist."**
+
+**"Used to?"**
+
+**"Used to. Past tense."**
+
+**"What changed?"**
+
+**"You."** She shifts slightly, propping herself up to look at me. **"You're just as broken. Just as empty. And somehow that makes me feel less alone."**
+
+**"That's horrifying."**
+
+**"I know."**
+
+**"Also beautiful."**
+
+**"I know that too."**
+
+I pull her closer. **"My turn?"**
+
+**"Your turn."**
+
+**"I was afraid,"** I admit. **"When my father told me about the marriage. About you. Not because I thought you'd be weak or boring. But because I thought you'd be too strong. That you'd see through me. See the emptiness. And you'd be disgusted by it."**
+
+**"And instead?"**
+
+**"Instead you matched it. You looked into the void and said 'oh good, company.'"**
+
+She laughs. Actually laughs. It's a rare sound. Beautiful and terrifying in equal measure.
+
+**"We really are perfect for each other,"** she says.
+
+**"We really are."**
+
+**"In the most fucked up way possible."**
+
+**"Is there any other way?"**
+
+**"Not for us."**
+
+Silence settles between us. Comfortable. Easy. The kind of quiet that doesn't need filling.
+
+**"Dante?"**
+
+**"Mm?"**
+
+**"Tomorrow. When we walk into that dinner. When the shooting starts."**
+
+**"Yes?"**
+
+**"Stay alive. Please."**
+
+The 'please' costs her. I can hear it in her voice.
+
+**"You too,"** I say. **"I'd be very irritated if I had to run both families alone."**
+
+**"Irritated. That's what you'd be."**
+
+**"Devastated. Destroyed. Homicidal. Pick your adjective."**
+
+**"All of the above?"**
+
+**"All of the above,"** I confirm.
+
+She settles back against me. **"Good."**
+
+**"Good?"**
+
+**"Good to know I'd be missed."**
+
+**"You'd be mourned. There's a difference."**
+
+**"There is."**
+
+We drift then. Not sleeping. Just existing. Together.
+
+For the first time in my life, the quiet doesn't feel empty.
+
+It feels full.
+
+---
+
+## CHAPTER 6: THE DINNER
+
+### DANTE
+
+6:47 PM.
+
+The restaurant is exactly what I expected.
+
+High-end. Exclusive. The kind of place where senators and CEOs conduct business over thirty-year scotch and prepare rare steaks. Private dining rooms. Soundproofed walls. Security that looks expensive but is actually competent.
+
+The Calabrese family chose well.
+
+Too bad they're all going to die here.
+
+Vivienne and I arrive separately from our fathers. Security protocol. If one car gets hit, the others scatter.
+
+But we all make it to the valet.
+
+All still breathing.
+
+For now.
+
+Lorenzo and Dmitri are already inside, seated in the main private room. Waiting. Playing their parts perfectlytwo old patriarchs agreeing to break bread with their rivals, celebrating the successful marriage alliance.
+
+Naive. Trusting. Ripe for slaughter.
+
+If only the Calabrese knew what was waiting for them.
+
+**"You ready?"** Vivienne asks as we walk through the entrance.
+
+**"Are you?"**
+
+**"I've been ready for this since I was twelve."**
+
+**"Bloodthirsty even then?"**
+
+**"Especially then."**
+
+We're shown to the private room. Large. Circular table. Seating for twenty. Our fathers at the center. Empty chairs around them.
+
+Too many empty chairs.
+
+**"Dante. Vivienne."** Lorenzo stands. Embraces me. Kisses Vivienne's cheek. Perfect patriarch playing perfect host.
+
+Dmitri does the same. All warmth and vodka-scented affection.
+
+To anyone watching, we're a family.
+
+United. Strong. Celebrating.
+
+**"They're late,"** Dmitri observes, checking his watch.
+
+**"They'll be here,"** Lorenzo assures him. **"The Calabrese are many things, but punctual isn't one of them."**
+
+As if on cue, the door opens.
+
+But it's not the Calabrese.
+
+It's our people.
+
+Four of them, dressed as waitstaff. Moving with the kind of precision that only comes from military training. They position themselves at strategic pointsexits, corners, sightlines.
+
+Ready.
+
+**"How many outside?"** I ask quietly.
+
+**"Eight of ours. Six of theirs that we've identified,"** one of our people responds. **"Sera's on the roof across the street. Thermal signatures confirm twenty hostiles in the building. Basement. Kitchen. Second floor."**
+
+**"Weapons?"**
+
+**"Automatic. Suppressors. Professional grade."**
+
+**"Good."**
+
+**"Good?"** Vivienne arches an eyebrow.
+
+**"The better armed they are, the more expensive this gets for the Court. Every weapon. Every operative. Every failed assassination attempt costs them."**
+
+**"You're thinking long-term."**
+
+**"Always."**
+
+The door opens again.
+
+This time it is the Calabrese.
+
+Five men. Expensive suits. Forced smiles. Led by Don Salvatore Calabrese himself—sixty-eight years old, grey hair, shark's eyes. A man who's spent four decades clawing his way to power through any means necessary.
+
+A man who thinks he's about to become the most powerful boss in New York.
+
+Poor bastard.
+
+**"Lorenzo! Dmitri!"** Salvatore spreads his arms wide. All warmth and false camaraderie. **"My friends! And the happy couple! Congratulations!"**
+
+We all stand. Shake hands. Exchange pleasantries.
+
+The whole performance is sickening.
+
+But necessary.
+
+**"Please, sit, sit!"** Lorenzo gestures magnanimously. **"We have much to celebrate!"**
+
+Everyone takes their seats. Salvatore at one end of the table. Lorenzo and Dmitri flanking him. Vivienne and I positioned between our fathers and the door.
+
+Strategic.
+
+Salvatore's men spread out around the room. Trying to look casual. Failing.
+
+**"Shall we order?"** Salvatore suggests. **"I understand the osso buco here is exceptional."**
+
+**"Of course, of course,"** Lorenzo agrees.
+
+One of our peopledisguised as a waiterappears with menus. Begins taking orders.
+
+Salvatore doesn't notice the weight distribution is wrong. Doesn't notice the way the "waiter" positions himself between Salvatore and the door.
+
+Doesn't notice he's already dead.
+
+Just doesn't know it yet.
+
+**"To new beginnings,"** Salvatore says, raising his glass. **"To peace between our families. To prosperity."**
+
+**"To family,"** Dmitri counters, meeting my eyes across the table.
+
+**"To family,"** we all echo.
+
+We drink.
+
+And then, right on schedule, the lights go out.
+
+---
+
+### VIVIENNE
+
+Darkness.
+
+Complete. Absolute.
+
+Exactly as planned.
+
+I'm moving before the first scream.
+
+My hand finds the knife strapped to my thighconcealed under the black dress I chose specifically for this moment. Form-fitting. No loose fabric to grab. Weapons hidden in places men don't think to check.
+
+Sexism is useful sometimes.
+
+The emergency lights kick in. Dim. Red. Just enough to see silhouettes.
+
+Just enough to kill by.
+
+Gunfire erupts from the second floor. Suppressed but not silent. The distinctive chatter of automatic weapons trying to cut through the room.
+
+Trying.
+
+Failing.
+
+Our people return fire. Controlled bursts. Precise. Every shot accounting for backdrop, trajectory, civilian presence.
+
+Professional.
+
+One of Salvatore's men goes for his gun.
+
+I'm faster.
+
+My knife finds his throat before the weapon clears his holster. Warm blood spills over my hand. He makes a wet, gurgling sound.
+
+Then silence.
+
+One down.
+
+**"POSITIONS!"** Dante shouts.
+
+Our people move like clockwork. Two covering the door. Two covering the windows. Lorenzo and Dmitri dropping behind the table—old men who've survived too long to freeze during violence.
+
+Salvatore's remaining four bodyguards open fire.
+
+Wildly. Desperately. Hitting walls, ceiling, empty air.
+
+Our people don't miss.
+
+Four shots. Four bodies.
+
+It's over in seconds.
+
+But the real fight is just beginning.
+
+The door explodes inward. Splinters. Smoke. Six men in tactical gear pour through. Court operatives. The professionals Salvatore hired to make this look like a Morelli-Bratva massacre.
+
+They're good.
+
+We're better.
+
+Dante moves like violence given form. Two shots center mass on the first man through the door. The operative's vest stops the bullets but the impact drops him to his knees.
+
+Dante's follow-up shotto the headdoesn't care about vests.
+
+Sera's voice crackles through our earpieces. **"Second floor team moving to flank. Twelve hostiles. Kitchen entrance."**
+
+**"Acknowledged,"** Dante responds. **"Status on outside?"**
+
+**"Eight hostiles converging on main entrance. I'm thinning them out."**
+
+As if to punctuate this, a window shatters. One of the Court operatives drops, half his head missing.
+
+Sera doesn't miss.
+
+**"God, I love that kid,"** I mutter.
+
+**"Focus,"** Dante snaps. But he's smiling.
+
+We're both smiling.
+
+This is what we were made for.
+
+The remaining five operatives spread out. Professional tactics. Covering fire. Coordinated movement.
+
+It won't save them.
+
+I drop low, using the table for cover, and come up behind one of them. My knife finds the gap between vest and belt. Once. Twice. Three times.
+
+He falls.
+
+I take his weapon. Something full-auto and German. Expensive.
+
+The Court spares no expense.
+
+Their mistake.
+
+**"KITCHEN!"** one of our people shouts.
+
+The kitchen door slams open. The promised twelve hostiles flood in.
+
+And that's when our trap springs completely.
+
+Because we're not the only ones who've been planning.
+
+The "waitstaff" who've been serving food all evening?
+
+All ours.
+
+The "security" who checked IDs at the entrance?
+
+All ours.
+
+The "musicians" in the main dining room?
+
+You guessed it.
+
+Twenty-eight guns turn on twelve Court operatives.
+
+It's not a fair fight.
+
+We didn't want it to be.
+
+---
+
+### DANTE
+
+The massacre lasts ninety seconds.
+
+Ninety seconds of controlled violence. Suppressing fire. Tactical positioning. Every lesson learned from a lifetime of warfare compressed into one perfect minute and a half.
+
+When the smoke clears, twenty Court operatives are dead.
+
+Their bodies arranged in patterns that will tell a very specific story to anyone who finds them.
+
+Salvatore Calabrese huddles under the table. Whimpering. Covered in blood that isn't his.
+
+I walk over. Crouch down so we're eye level.
+
+**"Salvatore,"** I say pleasantly. **"We need to talk."**
+
+**"You..you killed them all"**
+
+**"Yes. We did. Because they came here to kill my father. And my father-in-law. And frame me and my wife for it."**
+
+**"I didn't..I wasn't"**
+
+**"Oh, but you were,"** Vivienne says, appearing beside me. She's covered in blood. Splatter patterns across her face, her dress, her bare arms.
+
+She's never looked more beautiful.
+
+**"The Silent Court approached you six months ago,"** I continue. **"Offered you money. Resources. Political protection. All you had to do was help them eliminate the Morelli-Bratva alliance."**
+
+**"I don't know what you're talking about"**
+
+**"Salvatore."** I sigh. **"We have your communications. Your bank records. Recordings of you begging them for more time, more money, more support."**
+
+His face goes white.
+
+**"So here's what's going to happen,"** Vivienne says. **"You're going to confess. Everything. The Court. Calloway. All of it."**
+
+**"They'll kill me!"**
+
+**"We'll kill you if you don't,"** I point out. **"At least this way you have a chance."**
+
+**"What chance?"**
+
+**"Witness protection. New identity. You disappear. The Court thinks you died here. We get our evidence. Everyone wins."**
+
+**"Except the Court,"** Vivienne adds.
+
+Salvatore looks between us. Calculating. Desperate.
+
+**"And if I refuse?"**
+
+I glance at Sera, who's just entered through the kitchen, rifle still in hand, blood spatter on her face.
+
+**"Then we let her practice her interrogation techniques. She's fifteen. Still learning. Sometimes she gets... overzealous."**
+
+Sera grins. **"I could use the practice."**
+
+Salvatore breaks.
+
+**"I'll talk. I'll tell you everything. Just please"**
+
+**"Smart choice,"** Vivienne says.
+
+---
+
+Two hours later, we have everything.
+
+A full confession. Recorded on video. Clean. Unambiguous. Copied, encrypted, and distributed across our dead man switches like seeds scattered into the dark.
+
+The Court stands naked.
+
+Its entire structure peeled open. Names. Accounts. Operations. The machinery of power exposed down to the last moving part.
+
+Senator Richard Calloway is the political arm. The voice in public. The smile on television. The man who turns laws into shields and outrage into smoke.
+
+Judge Evelyn Thorne runs enforcement. The woman who has spent two decades making evidence vanish, witnesses forget themselves, federal cases rot from the inside out. A gavel soaked in invisible blood.
+
+And CEO William Cross handles operations. The billionaire tech mogul whose legitimate empire provides immaculate cover. Clean offices. Clean numbers. Dirty hands directing everything beneath the surface.
+
+Three people.
+
+Running the entire underworld.
+
+Until tonight.
+
+**"What do we do with Salvatore?"** Lorenzo asks.
+
+**"Exactly what we promised,"** I say. **"Witness protection. New identity. He disappears."**
+
+**"You're letting him live?"** Dmitri sounds skeptical.
+
+**"He's worth more alive,"** Vivienne explains. **"Alive, he's evidence. He's testimony. He's insurance."**
+
+**"And if he runs?"**
+
+**"He won't,"** I say confidently. **"Because Sera implanted a tracker in his neck while I was talking to him."**
+
+Sera waves cheerfully.
+
+**"You're a terrifying child,"** Dmitri says.
+
+**"Thank you!"**
+
+We arrange Salvatore's extraction. Federal agents we've vetted. Protection details. Everything by the book.
+
+Because this time, we want it legal.
+
+We want the Court destroyed properly.
+
+Not just killed.
+
+Dismantled.
+
+**"The bodies?"** Lorenzo asks.
+
+**"Already handled,"** I say. **"Crime scene is staged to look like a Calabrese-Court operation that went wrong. Salvatore's men killed trying to assassinate us. Court operatives killed in the crossfire. Self-defense. Clean."**
+
+**"And the Court?"**
+
+**"Tomorrow,"** Vivienne says. **"Tomorrow we approach them. With everything we have. And we give them one chance to leave us alone."**
+
+**"And if they refuse?"**
+
+**"Then we release everything. Destroy them completely. Let the FBI, CIA, and every federal agency with an acronym tear them apart."**
+
+Dmitri smiles. **"I taught her well."**
+
+**"We both did,"** Lorenzo agrees.
+
+They embrace. These two men who've been enemies for a decade. United by bloodshed and mutual respect and the terrifying children they've raised.
+
+**"To family,"** my father says.
+
+**"To family,"** we echo.
+
+---
+
+### VIVIENNE
+
+Midnight.
+
+We come back home. Again.
+
+Blood-stained. Worn down to the bone. Victorious.
+
+Sera vanishes into her room the second we’re inside. There’s Court operative blood still tangled in her hair, and a new sniper rifle slung over her shoulder, liberated from one of the bodies like a souvenir.
+
+We really need to talk about her collecting habits.
+
+Tomorrow.
+
+Tonight, Dante and I collapse into the bed without ceremony. Clothes half on. Boots kicked away. Muscles buzzing too hard to relax, nerves still humming from violence and adrenaline. Too exhausted to bother undressing properly. Too wired to even think about sleep.
+
+**"We did it,"** I say.
+
+**"We did."**
+
+**"Twenty-eight kills between us. Clean extraction. Perfect evidence."**
+
+**"Perfect,"** he agrees.
+
+**"So why do I feel like this isn't over?"**
+
+**"Because it isn't,"** Dante says. **"The Court won't take this lying down. They'll push back. Test our resolve."**
+
+**"Good."**
+
+**"Good?"**
+
+**"I'd be bored otherwise."**
+
+He laughs. Pulls me closer. **"Of course you would."**
+
+**"We're going to war, aren't we? Long-term. Against the most powerful criminal organization in the country."**
+
+**"Looks like it."**
+
+**"How do you feel about that?"**
+
+He considers this. **"Excited. Terrified. Alive."**
+
+**"Same."**
+
+**"We're insane."**
+
+**"Completely."**
+
+**"I love you,"** he says suddenly.
+
+I freeze.
+
+We don't say that. We don't do feelings. We don't
+
+**"I know,"** he continues. **"I know we're both broken. I know neither of us probably even knows what love actually means. But whatever this is"** he gestures between us, **"whatever we have. It's the closest I'll ever get."**
+
+I'm quiet for a long moment.
+
+Then: **"I love you too. In whatever fucked up way I'm capable of."**
+
+**"That's all I need."**
+
+**"Good. Because it's all I have to give."**
+
+**"More than enough."**
+
+We kiss.
+
+Soft. Careful. Almost reverent.
+
+Nothing like the violence that came before. None of the hunger, none of the sharp edges or reckless heat that usually define us. This is quieter. Slower. It lands differently.
+
+This is something else entirely.
+
+Something neither of us planned for.
+Something neither of us knows how to name.
+Something neither of us fully understands.
+
+But it’s here.
+
+Between us.
+
+And whatever it is, we’re not letting it go.
+
+**"Dante?"**
+
+**"Mm?"**
+
+**"Tomorrow. When we contact the Court."**
+
+**"Yes?"**
+
+**"Let's make sure they know exactly who they're dealing with."**
+
+He smiles against my hair. **"Oh, they will. I promise you that."**
+
+**"Good."**
+
+We finally drift under.
+
+Entangled. Limbs knotted together without thinking. Blood still drying on our skin, flaking and tacky. Weapons close enough to grab without opening our eyes.
+
+Tomorrow, we declare war on gods.
+
+But tonight?
+
+Tonight, we’re just two broken people who collided in the wreckage of everything we were supposed to be.
+
+And somehow…
+we turned that ruin into something beautiful.
+
+---
+
+### DANTE
+
+2:47 AM.
+
+I wake to moonlight cutting through the curtains and the weight of her in my arms.
+
+Two hours of sleep. Maybe less. My body's still humming with residual adrenaline, muscles sore from violence, mind still cataloging the evening's body count with clinical precision.
+
+Twenty-eight kills. Perfect execution. Zero casualties on our side.
+
+A successful night by any measure.
+
+But that's not why I'm awake.
+
+I'm awake because Vivienne is draped across me like she owns me. One leg thrown over my hips. One hand splayed across my chest. Her face pressed against my shoulder, breath warm and steady against my skin.
+
+Vulnerable.
+
+Trusting.
+
+Mine.
+
+And I want her.
+
+Not the gentle, reverent way we fell asleep. Not soft or careful or almost-sweet.
+
+I want her with the same ruthless intensity that defines everything else about us. Want to consume her. Claim her. Make her come apart so thoroughly she forgets her own name.
+
+The urge is visceral. Overwhelming. The kind of hunger that doesn't care about exhaustion or common sense or the fact that we both need sleep before tomorrow's confrontation with the Court.
+
+I don't care.
+
+I need her.
+
+Now.
+
+But she's sleeping. Actually sleeping. And despite everything I am—despite the violence and the emptiness and the complete lack of conventional morality—I can't bring myself to just wake her.
+
+So I improvise.
+
+I start with her shoulder. The softest press of my lips against bare skin. Just a whisper of contact. Nothing that would disturb her sleep.
+
+She doesn't stir.
+
+Good.
+
+I trail kisses along her collarbone. Slow. Deliberate. Mapping the geography of her with my mouth. Each freckle. Each scar. Each place where her pulse beats visible beneath skin.
+
+Her breathing changes. Still asleep, but her body responding on instinct.
+
+I continue my descent.
+
+Down the center line of her chest. Between her breasts. Across the flat plane of her stomach. She shifts slightly, a soft sound escaping her throat that's not quite awake but not quite unconscious either.
+
+Perfect.
+
+I ease her onto her back. Gentle. Careful. She's still wearing the black lace from earlier—somehow both of us were too exhausted to fully undress. The fabric is twisted, revealing more than it conceals.
+
+My hands find her hips. Slide the lace down slowly. Inch by deliberate inch.
+
+She stirs again. Eyes still closed but her breathing quickening.
+
+**"Dante?"** Her voice is sleep-rough. Confused. Delicious.
+
+**"Shh,"** I murmur against her hip bone. **"Go back to sleep."**
+
+**"What are you—"**
+
+The question dies as I press my mouth to the inside of her thigh.
+
+**"Oh,"** she breathes.
+
+**"Oh,"** I agree.
+
+I can feel her waking up properly now. The way her muscles tense. The way her hands find my hair, fingers threading through it with just enough pressure to hurt.
+
+**"You're insane,"** she whispers. **"We just got to sleep—"**
+
+**"Two hours ago,"** I confirm. **"And I woke up wanting you. So here we are."**
+
+**"Here we—"**
+
+I don't let her finish.
+
+My mouth finds her center and she gasps. Back arching off the bed. Fingers tightening in my hair hard enough that I see stars.
+
+Good.
+
+I want her desperate.
+
+I start slow. Teasing. Learning what makes her shudder. What makes her breath catch. What makes her hips chase my mouth with unconscious need.
+
+She tastes like salt and heat and something indefinable that's uniquely her. Addictive. Devastating.
+
+I could do this for hours.
+
+**"Dante—"** Her voice breaks on my name. **"You can't just—"**
+
+**"Can't I?"**
+
+I prove that I absolutely can.
+
+My tongue traces patterns. Circles. Figure eights. Experimenting with pressure and rhythm until I find the combination that makes her hand fly to her mouth to stifle the sound threatening to escape.
+
+We have security throughout the house. Sera sleeping down the hall. This needs to be quiet.
+
+The restraint makes it better.
+
+**"Look at me,"** I order against her skin.
+
+Her eyes open. Pupils blown wide. Looking down at me between her thighs with an expression I've never seen before.
+
+Not the cold calculation. Not the razor-sharp intelligence.
+
+Just raw, unfiltered need.
+
+**"There you are,"** I murmur. **"Stay with me."**
+
+She tries to respond but I don't give her the chance. I increase the pressure. The pace. Using everything I've learned about her body in three days of obsessive study.
+
+The way she likes pressure on the left side more than the right. The way she needs consistent rhythm to build. The way she gets close and then backs off unless I anchor her in place.
+
+So I do.
+
+My hands grip her hips. Holding her steady. Keeping her exactly where I want her while I work.
+
+**"I can't—"** she gasps. **"It's too—"**
+
+**"Yes, you can."**
+
+**"Dante, I'm going to—"**
+
+**"I know. That's the idea."**
+
+She's trembling now. Full-body shudders that she can't control. Fighting it. Fighting me. Fighting herself because giving in feels like losing control and Vivienne Rostov doesn't lose control.
+
+Except with me.
+
+**"Let go,"** I tell her. **"I've got you."**
+
+**"Can't—"**
+
+**"You can. Trust me."**
+
+And that's what does it.
+
+Not the physical pleasure. Not the technical skill.
+
+The trust.
+
+She breaks.
+
+Her hand slaps over her mouth just in time to muffle the sound. Her entire body goes rigid. Waves of tension rolling through her while I hold her steady. Gentle her through it. Draw it out until she's boneless and shaking and trying to catch her breath.
+
+When I finally pull back, she's staring at the ceiling with an expression of stunned disbelief.
+
+**"What,"** she manages eventually, **"the actual fuck."**
+
+I crawl back up her body. Kiss her slowly. Let her taste herself on my tongue.
+
+**"Good morning,"** I say.
+
+**"It's three in the morning."**
+
+**"Good morning anyway."**
+
+She laughs. Breathless and slightly hysterical. **"You're impossible."**
+
+**"You married me."**
+
+**"Clearly a moment of weakness."**
+
+**"Too late for regrets now."**
+
+She pulls me down into another kiss. Deeper this time. Her hands already working at my clothes with single-minded determination.
+
+**"My turn,"** she says against my mouth.
+
+**"You don't have to—"**
+
+**"I know. I want to."**
+
+And who am I to argue with that?
+
+---
+
+### VIVIENNE
+
+He woke me up by going down on me.
+
+I'm still processing this.
+
+I've done many things in my life. Killed. Tortured. Manipulated. Destroyed. But I've never had someone wake me from sleep by devouring me like I'm the only meal that matters.
+
+It's...
+
+I don't have words.
+
+So instead of finding words, I'm going to return the favor.
+
+I push him onto his back. He goes willingly. All that lethal control surrendered without hesitation because he trusts me.
+
+Stupid.
+
+Beautiful.
+
+Mine.
+
+I take my time undressing him. The pants he somehow still has partially on. Everything until there's nothing between us except intent.
+
+**"Vivienne—"** he starts.
+
+**"Shh. You got yours. Now I get mine."**
+
+**"I wasn't trying to—"**
+
+**"I know. That's why I'm doing this."**
+
+I kiss him. Once. Hard. Then start my own descent.
+
+Down his throat. Across his chest. Pausing at old scars to catalogue them properly. Each one a story. Each story a testament to the violence that made him.
+
+**"You don't have to—"** he tries again.
+
+And that's when I realize something.
+
+He's talking too much.
+
+I pause. Look up at him from where I'm positioned between his thighs. His eyes are dark, pupils blown wide, but there's still that edge of control in them. That analytical part of his brain that never fully shuts off.
+
+That won't do.
+
+I want him mindless. Want him reduced to nothing but sensation and need. Want to watch that iron control shatter completely.
+
+So instead of continuing, I make a decision.
+
+**"You know what?"** I say, crawling back up slightly. **"You talk too much."**
+
+**"I wasn't—"**
+
+**"Still talking."**
+
+I swing my leg over him. But instead of facing him, I turn around. Position myself so I'm straddling him in reverse. My face level with his hips. My hips level with his face.
+
+There's a beat of silence.
+
+Then I feel his hands grip my thighs. Hard.
+
+**"Vivienne—"**
+
+**"You woke me up,"** I say, taking him in hand, **"by devouring me. Did such a thorough job I can still feel it."** I lower my head, let my breath ghost over him. **"So now we're going to do this together. And you're not going to be able to talk. You're going to be too busy."**
+
+**"Fuck,"** he breathes.
+
+**"Exactly."**
+
+I take him into my mouth at the same moment his tongue finds me.
+
+The dual sensation is—
+
+There are no words.
+
+I'm trying to focus. Trying to maintain technique. Trying to use everything I've learned in three days of mapping his body to drive him absolutely insane.
+
+But he's doing the same thing to me.
+
+His mouth works with that same ruthless precision as before. But now his hands have access to everything. Gripping my hips. Pulling me down harder against his face. Fingers finding angles that make me gasp around him.
+
+Which makes him groan.
+
+Which vibrates through me.
+
+Which makes me take him deeper.
+
+It's a feedback loop of sensation. Neither of us able to focus properly because we're both trying to unmake each other at the same time.
+
+This is competition.
+
+This is cooperation.
+
+This is us distilled to our purest form—two people who can't stop trying to win even when winning means losing control.
+
+I increase my pace. Use my hand in combination with my mouth. Find the rhythm that makes his hips buck involuntarily.
+
+He retaliates by doing something with his tongue that makes my vision white out.
+
+**Bastard.**
+
+I double my efforts. Take him deeper than I thought possible. Use every trick I can think of.
+
+His response is to grip my hips hard enough to bruise and pull me down like he's trying to consume me whole.
+
+I'm going to come.
+
+I'm trying not to. Trying to make him break first. Trying to win this unspoken competition.
+
+But he knows my body too well. Knows exactly how to touch me. Exactly where to focus.
+
+**"Dante—"** I try to pull away. To protest. To reclaim some control.
+
+His hands lock me in place.
+
+And he doesn't stop.
+
+The orgasm crashes through me with brutal efficiency. I have to pull off him to muffle the sound against his thigh. Shaking. Trembling. Completely wrecked.
+
+But I don't stop working him with my hand.
+
+If I'm going down, I'm taking him with me.
+
+I feel it building in him. The tension. The way his muscles lock. The way his breathing changes.
+
+**"Vivienne—"** His voice is wrecked. Warning. Asking permission even now.
+
+I take him back into my mouth.
+
+And I show him exactly what happens when I commit to something.
+
+He breaks with my name on his lips. Muffled against my thigh. Whole body going rigid before the tension releases in waves.
+
+I work him through it. Gentle him down. The way he did for me.
+
+When it's over, we're both shaking.
+
+Both wrecked.
+
+Both completely undone.
+
+I manage to turn around. Collapse against his chest. Too exhausted to move properly.
+
+His arms come around me immediately. Possessive. Grounding.
+
+We lie there in silence. Hearts pounding in synchronization. Lungs trying to remember how breathing works. Skin slick with sweat and other things we're too spent to care about.
+
+**"What,"** he manages eventually, voice absolutely destroyed, **"the actual fuck."**
+
+I laugh. Breathless. Slightly manic. **"You started it."**
+
+**"You escalated."**
+
+**"And you loved every second."**
+
+**"Every. Single. Second."**
+
+His hand finds my hip. Traces lazy patterns on my skin. The touch is casual. Intimate. The kind of thing people who've known each other for years do, not three days.
+
+But time doesn't work the same way for us.
+
+Three days.
+
+Three lifetimes.
+
+Same thing.
+
+**"Vivienne?"**
+
+**"Mm?"**
+
+**"We're idiots."**
+
+I shift slightly so I can see his face. **"Elaborate."**
+
+**"We have to face the Silent Court in—"** he glances at the clock, **"—six hours. We should be sleeping. Preparing. Conserving energy."**
+
+**"And instead?"**
+
+**"Instead I woke you up to go down on you. And you retaliated by turning it into a competition. And now we're both completely wrecked and tomorrow we're walking into a confrontation that could end with federal agents raiding our homes or the Court putting bullets in our heads."**
+
+**"So?"**
+
+**"So we're idiots."**
+
+**"Worth it though,"** I point out.
+
+**"Completely worth it,"** he agrees immediately. **"But still idiots."**
+
+**"The best kind."**
+
+He pulls me closer. Like he's trying to absorb me into his skin. Make us one person instead of two.
+
+I should hate this. Should feel claustrophobic. Trapped.
+
+I don't.
+
+I feel safe.
+
+Which is more terrifying than anything the Silent Court could do to me.
+
+**"Dante?"**
+
+**"Mm?"**
+
+**"When we win tomorrow—and we will win—what happens next?"**
+
+He's quiet for a long moment. Thinking. Always thinking.
+
+**"We consolidate power,"** he says finally. **"Make sure the Court knows exactly what we're capable of. Establish boundaries they won't cross. Build something that can't be destroyed by politicians and puppets."**
+
+**"And personally?"**
+
+**"Personally?"**
+
+**"You and me. This."** I gesture vaguely between us. **"What happens when the adrenaline fades and we're not fighting for our lives every second?"**
+
+His hand slides up my spine. Finds the nape of my neck. Holds me there.
+
+**"We keep doing exactly this,"** he says. **"We wake each other up at three in the morning because we can't keep our hands to ourselves. We compete over who can make the other lose control first. We exist in this space where violence and pleasure blur together."**
+
+**"That's not sustainable."**
+
+**"Probably not."**
+
+**"We'll burn out."**
+
+**"Maybe."**
+
+**"We'll destroy each other."**
+
+**"Possibly."**
+
+I wait for the fear to come. The logical realization that this is dangerous. Unhealthy. Doomed.
+
+It doesn't.
+
+**"I'm okay with that,"** I hear myself say.
+
+**"Yeah?"**
+
+**"Yeah. If I'm going to burn, I want it to be with you."**
+
+He kisses me.
+
+Slow. Deep. Different from everything that came before.
+
+This isn't hunger. Isn't competition. Isn't the frantic need to consume and be consumed.
+
+This is something quieter.
+
+Something that sits in the chest and refuses to leave.
+
+Something I don't have a name for because I've never felt it before.
+
+When he pulls back, his eyes are impossibly dark in the moonlight.
+
+**"Every night we survive,"** he says. **"Every morning we wake up. Every moment we can steal. This. Us. Whatever the fuck this is."**
+
+**"Promise?"**
+
+The word costs me. I can feel it leave my mouth like a piece of armor falling away.
+
+**"Promise,"** he says. **"I'm not letting you go. Not to the Court. Not to our families. Not to fate or logic or common fucking sense. You're mine. And I'm yours. That's the only thing that matters."**
+
+Something cracks open in my chest.
+
+Not breaking.
+
+Opening.
+
+Making room for something I didn't know I could hold.
+
+**"I love you,"** I whisper.
+
+Second time I've said it. Still feels foreign. Still feels like admitting to a weakness.
+
+But also like stating a fact.
+
+The sky is blue. Water is wet. I love Dante Morelli.
+
+**"I love you too,"** he says. **"In whatever fucked up, broken, psychopathic way we're capable of. It's not normal. It's not healthy. It's probably going to get us both killed."**
+
+**"But it's real."**
+
+**"It's real."**
+
+I settle against him properly. Let exhaustion start to pull me under.
+
+**"Dante?"**
+
+**"Mm?"**
+
+**"Tomorrow. When we walk into that meeting. When we stare down the most powerful criminal organization in the country."**
+
+**"Yes?"**
+
+**"I want them to see exactly what we are. Not two separate people playing alliance. But something unified. Something they can't break or manipulate or control."**
+
+**"They will,"** he promises. **"We'll make sure of it."**
+
+**"Good."**
+
+Sleep is starting to take me. For real this time.
+
+But right before I go under, I feel him press his lips to my forehead.
+
+Gentle.
+
+Reverent.
+
+The kind of gesture that doesn't belong to people like us.
+
+**"Sleep,"** he murmurs. **"I've got you."**
+
+And for once, I believe it.
+
+For once, I let go of control completely.
+
+For once, I trust.
+
+We drift under together.
+
+Tangled so thoroughly I can't tell where I end and he begins.
+
+Blood still flaking on our skin from tonight's massacre.
+
+Weapons still within arm's reach.
+
+Tomorrow we declare war on gods.
+
+But tonight?
+
+Tonight we're just two broken people who found something whole in each other.
+
+And somehow, against every odd and expectation, that's enough.
+
+---
+
+## CHAPTER 7: GODS DON'T BLEED (UNTIL THEY DO)
+
+### VIVIENNE
+
+10:47 AM.
+
+Four hours of sleep.
+
+Not nearly enough.
+
+But when you're about to walk into a room with the three most powerful criminals in America and tell them to back off, adrenaline does the heavy lifting.
+
+Dante is already dressed from the waist down, fighting with a cufflink like it's a hostile operative. I take his wrist, thread the Cartier through, and feel his pulse jump under my fingers.
+
+**"Nervous?"**
+
+**"Terrified,"** he admits.
+
+The honesty shocks me. I straighten his collar anyway. **"We don't lose today."**
+
+He catches my hand against his chest. **"If this goes wrong—"**
+
+**"It won't."** I fix his tie, then his expression. **"You and me. United front. No daylight. They push, we push back harder."**
+
+He leans down and kisses my forehead. Soft. Quick. A promise.
+
+We dress in silence after that. Kevlar under silk. Steel under lace. Lovers in suits.
+
+By the time we leave, the softness is put away.
+
+---
+
+### DANTE
+
+The New York Public Library. Main reading room. Closed for “maintenance.”
+
+Translation: the Silent Court rented it and filled it with enough security to take over a small embassy.
+
+We arrive exactly on time.
+
+Lorenzo and Dmitri flank us. Sera and four of ours hang back. Armed. Watching. The kind of quiet that means violence is a breath away.
+
+At the far end of the room, a single table. Three people.
+
+Calloway. Thorne. Cross.
+
+They don’t stand. They don’t smile. They just watch us walk the length of the room like a procession.
+
+**"Dante. Vivienne,"** Calloway says. He extends a hand.
+
+We don’t take it.
+
+The hand hangs. The power play fails. He withdraws it like nothing happened.
+
+**"Please sit,"** Thorne says.
+
+We stay standing.
+
+**"We prefer to keep our exits clear,"** Vivienne says.
+
+Cross laughs once. Dry. **"You two really are as advertised."**
+
+**"We didn’t come for introductions,"** I say. **"We came for terms."**
+
+**"You don’t set terms,"** Thorne replies.
+
+Behind us, two of their security take a step. In front of us, two more angle in. The room narrows.
+
+Calloway watches my eyes flick to the exits. **"Sit, or we do this the hard way."**
+
+**"We already did the hard way,"** Vivienne says. **"Last night, remember?"**
+
+Silence. Then Cross leans forward. **"Twenty-eight of ours. Twelve of theirs. A clean extraction. You made a point. Impressive. Still irrelevant."**
+
+**"Then you misread the point,"** I say. **"We’re not asking for permission. We’re telling you how this ends."**
+
+Thorne’s jaw tightens. **"You’re children playing at war."**
+
+I slide a tablet across the table. **"Children don’t bring receipts."**
+
+Thorne picks it up. Reads. Her face goes blank.
+
+Calloway reads. His eyes harden.
+
+Cross reads. His mouth actually opens.
+
+Vivienne gestures and the wall behind us comes alive with projection. Files. Photos. Audio waveforms. Timelines.
+
+**"Senator Calloway,"** she says. **"March 15, 2023. Congressman Bradley Moore. Brake failure, convenient rain, closed-circuit footage missing. We have the mechanic’s confession. Recorded. Notarized. He’s in protective custody. Ready to testify."**
+
+Calloway’s fingers tighten on the tablet.
+
+**"Judge Thorne."** I take over. **"Forty-seven cases buried. Three murder trials dismissed. Wire transfers to Cayman accounts. Account 847-CH-9923. Balance: forty-seven million."**
+
+Thorne goes still. Too still.
+
+**"William Cross,"** Vivienne says. **"Twenty percent of your server farm hosts dark web marketplaces. Weapons. trafficking. Laundered payments through shell charities. We have logs, IPs, bank trails. The exact chain."**
+
+Cross looks like he’s been punched.
+
+**"That’s just the professional damage,"** I say, and drop a folder on the table. **"Here’s the personal."**
+
+Calloway’s daughter. Address. Routine. Safe house proximity. The photo makes him flinch.
+
+Thorne’s son. Rehab. Room number. Visiting hours.
+
+Cross’s hidden accounts. The London family. The twelve-year-old boy with his name.
+
+The room shifts. The Court’s security look at their bosses for cues. None come.
+
+**"How the FUCK do you have this?"** Cross demands.
+
+**"Viktor Sokolov was embedded for three years,"** Vivienne says. **"Marcus Webb was CIA. And Salvatore Calabrese sang when Sera took the pliers."**
+
+Calloway’s voice drops. **"What do you want?"**
+
+**"Independence,"** I say. **"No tribute. No interference. No surveillance. You stay in your lane, we stay in ours."**
+
+**"And if we refuse?"** Thorne asks, but the threat is already gone from her voice.
+
+Vivienne smiles. **"Then by noon tomorrow the FBI has every file, every recording, every address. By dusk you’re in cuffs. By next week you’re begging for a plea."**
+
+Cross tries to recover. **"You’ll go down too."**
+
+**"Maybe,"** I say. **"We’re twenty-four. We can do prison and come out. You can’t."**
+
+Silence. Long. Deadly.
+
+Then the move we expected.
+
+Calloway lifts a hand. The Court’s security closes around us.
+
+**"You made a mistake coming here,"** he says quietly. **"Leverage doesn’t matter if you don’t live to use it."**
+
+The first shot shatters a chandelier.
+
+---
+
+### VIVIENNE
+
+Sera.
+
+The bullet misses on purpose. It’s a message.
+
+*We have your leaders in our scope.*
+
+Every gun in the room freezes.
+
+**"As I was saying,"** I tell them, **"we planned for this. Two snipers have clean lines. Twenty of our people are inside the building. Your security moves, your heads come off."**
+
+Thorne’s eyes flick to the windows. **"This is a public library."**
+
+**"Closed for your convenience,"** Dante says. **"Very convenient."**
+
+Cross exhales slowly. **"Mutually assured destruction. The only position we can’t counter."**
+
+Calloway looks at the table. At the files. At us. And finally, he understands.
+
+**"Terms,"** Thorne says.
+
+**"We already gave them,"** I answer. **"No interference. No recruitment. No surveillance. We walk away."**
+
+**"And if you step out of line?"** Calloway asks.
+
+**"Then you hit us with everything you have. Federal agencies. Courts. Media. We won’t cry about it. We’ll just make sure you bleed too."**
+
+Cross’s laugh is half-horrified, half-impressed. **"You two are insane."**
+
+**"Yes,"** Dante says. **"But we’re consistent."**
+
+Calloway hesitates. Then nods once. **"Fine. Independence. But understand—if you threaten the broader ecosystem, we end you. Directly."**
+
+**"Understood,"** I say. **"Now have your people stand down."**
+
+They do.
+
+The room breathes again.
+
+Cross extends his hand. After a beat, Dante takes it. Then I do.
+
+**"You just made history,"** Cross says quietly. **"First family in twenty years to tell the Silent Court to go fuck itself and live."**
+
+**"We’re not done,"** I say.
+
+He smiles without humor. **"That’s what scares me."**
+
+They leave slower than they arrived. Shaken. Forced to recalculate.
+
+Lorenzo exhales. **"Did that actually just happen?"**
+
+**"It did,"** Dante says.
+
+We walk into the sunlight.
+
+Free.
+
+For now.
+
+**"What now?"** Dmitri asks.
+
+I look at Dante.
+
+He looks at me.
+
+**"Now,"** he says, **"we build an empire they can’t touch."**
+
+---
+
+### DANTE
+
+Two weeks later.
+
+The world hasn't ended.
+
+The Silent Court hasn't retaliated.
+
+The feds haven't raided our homes.
+
+We're actually... free.
+
+It's unsettling.
+
+Vivienne and I stand in what used to be a warehouse in Brooklyn. Now it's something else. Headquarters. Base of operations. The physical manifestation of our independence.
+
+Renovated. Secured. Fortified.
+
+Twenty-four-hour security. State-of-the-art surveillance. Armory in the basement. Living quarters on the top floor. Everything we need to operate without Court interference.
+
+**"It's really happening,"** Vivienne says, looking around the open floor plan. **"We're actually doing this."**
+
+**"Having second thoughts?"**
+
+**"Not even a little."**
+
+Sera appears from the back room. She's been here all week, overseeing security installations. **"Everything's ready. Motion sensors, thermal imaging, facial recognition at all entry points. No one gets in without us knowing."**
+
+**"Good work,"** I tell her.
+
+**"Obviously."** She grins. **"Also, I intercepted a communication."**
+
+**"From?"**
+
+**"The Calabrese family. What's left of them."**
+
+Vivienne tenses. **"What did it say?"**
+
+**"They're reorganizing. New leadership. Young blood. And they're very interested in meeting with you."**
+
+**"Why?"**
+
+**"Because you did what they couldn't. Broke free from the Court. They want to know how. And—"** she pauses dramatically, **"—they want to join you."**
+
+I process this.
+
+**"They want to join our organization?"**
+
+**"Not just them. Word is spreading. About what you did. How you stood up to the Court and lived. Three other families have sent feelers. Asking questions. Testing interest."**
+
+**"In what?"** Vivienne asks.
+
+**"In an alternative. A new power structure. One that doesn't answer to the Silent Court."**
+
+Silence.
+
+We look at each other.
+
+**"We didn't plan for this,"** I say.
+
+**"No,"** Vivienne agrees. **"But it makes sense. We proved it's possible to exist outside the Court's control. Now everyone else wants the same thing."**
+
+**"If we start accepting families—building an actual network—"**
+
+**"We become a threat. A real one. The Court will have to respond."**
+
+**"They'll come at us with everything."**
+
+**"Yes."**
+
+**"It'll be war."**
+
+**"Yes."**
+
+She's quiet for a long moment. Then: **"Good."**
+
+**"Good?"**
+
+**"I'm bored already. Two weeks of peace is enough. Let's give them a reason to be terrified."**
+
+I laugh. Can't help it.
+
+This woman.
+
+This beautiful, terrifying, perfect woman.
+
+**"You're suggesting we build a rival organization. Directly challenging the Silent Court's monopoly on power."**
+
+**"I'm suggesting we finish what we started. We didn't break free just to hide. We broke free to prove it's possible. To show others the way out."**
+
+**"That's idealistic."**
+
+**"That's revolutionary."**
+
+**"It's also suicidal."**
+
+**"Probably."** She steps closer. **"But we're not in this to play it safe. We're in this to win. To build something they can't control or destroy. Something that outlasts us."**
+
+**"Legacy."**
+
+**"Empire."**
+
+I pull her against me. **"You know they'll come for us. Calloway. Thorne. Cross. They'll use everything they have."**
+
+**"Let them try."**
+
+**"We could die."**
+
+**"We could live forever."**
+
+**"Vivienne—"**
+
+She kisses me. Hard. Claiming.
+
+When she pulls back, her eyes are blazing.
+
+**"I'm not afraid of them,"** she says. **"I'm not afraid of anything. As long as I have you."**
+
+Something in my chest cracks open.
+
+Not breaking.
+
+Expanding.
+
+**"Then we do it,"** I say. **"We build something new. Something they can't touch. We take every family that wants out and we show them how to be free."**
+
+**"And when the Court responds?"**
+
+**"We make them bleed."**
+
+She smiles. Feral. Beautiful.
+
+**"Gods don't bleed,"** she says.
+
+**"They do,"** I correct. **"When you aim for the throat."**
+
+Sera clears her throat. **"So... should I tell the Calabrese yes?"**
+
+We look at her.
+
+Then at each other.
+
+**"Yes,"** Vivienne says. **"Tell them we're interested. Set up a meeting. Let's see what they're offering."**
+
+**"And the other families?"**
+
+**"Same,"** I say. **"But carefully. Verify loyalty. Verify motivation. We're not building an empire on shaky ground."**
+
+**"Understood."** Sera leaves to make calls.
+
+Vivienne and I stand in our new headquarters. Alone.
+
+**"This is insane,"** she says.
+
+**"Completely."**
+
+**"We're declaring war on the most powerful criminal organization in America."**
+
+**"Yes."**
+
+**"And we're going to win."**
+
+**"Yes."**
+
+She leans her head against my shoulder. Rare moment of softness.
+
+**"Dante?"**
+
+**"Mm?"**
+
+**"Thank you."**
+
+**"For what?"**
+
+**"For being just as crazy as I am."**
+
+I kiss the top of her head. **"Wouldn't have it any other way."**
+
+Outside, the city continues its chaotic rhythm. Millions of people living their lives. Unaware that in this warehouse, two psychopaths just decided to reshape the entire underworld.
+
+They'll know soon enough.
+
+Everyone will.
+
+Because we're not hiding anymore.
+
+We're not playing by their rules.
+
+We're making our own.
+
+And gods help anyone who gets in our way.
+
+---
+
+## EPILOGUE: THE PERMISSION TO BLEED
+
+### DANTE
+
+Two months later.
+
+The warehouse doesn’t feel like a warehouse anymore. It feels like a home with weapons hidden in the walls.
+
+We’ve learned each other’s routines the way we learned each other’s bodies. Morning coffee in silence. Training at noon. Strategy at night. The space between is filled with violence we prevent and violence we plan.
+
+We run two empires now—ours, and the fragile peace we carved out of the Court’s attention. Meetings with families who want out. Quiet negotiations with those still afraid. Paper trails made clean. Bodies buried cleaner.
+
+Some days feel almost normal. Then you hear the distant echo of sirens and remember that “normal” is just what people call a war they haven’t noticed yet.
+
+Lorenzo is worse.
+
+The cancer doesn’t respect power. It doesn’t care that he’s a king. It takes his weight, his appetite, his temper. It leaves him with a kind of pale dignity I’ve never seen on him before. We do chemo on Tuesdays. He pretends it’s just another meeting. We all pretend it’s not a countdown.
+
+Dmitri is still Dmitri—gruff, brutal, protective. But he’s softer around Vivienne now. He checks on Lorenzo more than he admits. He brings soup he claims he didn’t make. He sits by the bed and talks about old wars like the stories will hold the cancer at bay.
+
+Vivienne has learned how to sit in hospital rooms without looking like she wants to kill the monitors. She holds Lorenzo’s hand when he sleeps. She doesn’t speak about it afterward. She just watches me, like she’s memorizing how much it hurts me to see my father fade.
+
+We’re married in the only way we know how: by building and bleeding together. By showing up when it matters. By refusing to pretend we aren’t afraid of the things we pretend not to fear.
+
+The peace holds.
+
+Until it doesn’t.
+
+Tonight, the warehouse is too quiet. Not peaceful—*expectant*. The kind of silence you get right before the air changes.
+
+Vivienne is asleep upstairs. For once, real sleep. I should be with her. I should be sleeping too. But my instincts don’t relax just because we forced three monsters to blink.
+
+I’m in the security room when Sera walks in without knocking.
+
+She’s holding a black envelope. No return address. No print. Just my name. The handwriting is calm. Precise. Like it never doubts it will be read.
+
+**"It was under the door,"** she says. **"No cameras. No motion trigger. Nothing."**
+
+That shouldn’t be possible.
+
+I open it.
+
+One photograph. One flash drive.
+
+The photo isn’t from the library.
+
+It’s from *our bedroom*.
+
+Vivienne is asleep on her side, hair across her mouth, the sheet pulled to her waist. The timestamp in the corner reads **03:17 AM**.
+
+That was ten minutes ago.
+
+The back of the photo has four words in clean, clinical script:
+
+**YOU BOUGHT TIME.**
+
+My fingers are cold when I plug in the drive.
+
+One file. Twenty-eight seconds.
+
+Black screen. A metronome tick. Then a voice—distorted, controlled, genderless.
+
+**"Phase One complete."**
+
+Pause.
+
+**"Phase Two begins at midnight."**
+
+The screen flashes a symbol. A chessboard. One piece in the center.
+
+Not king.
+
+Not queen.
+
+The piece that moves in the dark and never goes where you expect.
+
+Then the video cuts to a live feed.
+
+Our bedroom. The same angle as the photograph.
+
+Vivienne breathing.
+
+Still asleep.
+
+The feed lasts three seconds.
+
+Then black.
+
+I sit back. Suddenly aware of every vent, every blind spot, every inch of air between us and the walls.
+
+**"That wasn’t Calloway,"** Sera says. **"That wasn’t Thorne or Cross."**
+
+**"No,"** I say. **"That was someone above them."**
+
+Vivienne appears in the doorway, barefoot, silent, eyes already sharp. I hold up the photo.
+
+She studies it for one breath.
+
+**"We didn’t win,"** she says.
+
+**"We earned time,"** I correct. **"And someone just spent it in our bedroom."**
+
+She takes the drive. **"Phase Two,"** she repeats, and her smile is slow and lethal.
+
+**"Good,"** she says. **"Let them come."**
+
+I nod.
+
+Because now we know the truth.
+
+The Silent Court was never the whole game.
+
+It was just the opening move.
+
+---
+
+**END OF BOOK ONE**
+
+## BOOK TWO: EMPIRE OF BLOOD AND CHOICE
